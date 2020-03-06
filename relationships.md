@@ -100,7 +100,7 @@ The other vignette involved a minister’s wife who complained that her husband 
 Mon, 16 Oct 2017 05:00:00 +0000
 
 
-## [082: Neil Sattin Interview — Cognitive Distortions and Relationships](http://feelinggood.libsyn.com/082-neil-sattin-interview-cognitive-distortions-and-relationships)
+## [082: Neil Sattin Interview — Cognitive Distortions and Relationships](http://feelinggood.libsyn.com/082-neil-sattin-interview-cognitive-distortions-and-relationships) - [transcript](https://www.neilsattin.com/blog/2018/03/133-change-thoughts-change-life-cognitive-distortions-dr-david-burns/)
 
 This interview was first published on Neil Sattin's highly regarded [Relationship Alive Podcast](https://www.neilsattin.com/). Although some of the material may be familiar, there's much that's new, and you will enjoy the chemistry between Neil and David as they discuss each of the ten cognitive distortions and raise many challenging questions, such as:
 * Is it **really** true that only our thoughts--and NOT external events--can change the way we feel?
@@ -109,6 +109,39 @@ This interview was first published on Neil Sattin's highly regarded [Relationsh
 * How can we challenge each of the ten cognitive distortions?
 And much more!
 
-David's first interview with Neil received more than 25,000 downloads in the first month, and this riveting interview promises to be every bit as popular. If you want to download [a transcript of this exciting interview](https://www.neilsattin.com/blog/2018/03/133-change-thoughts-change-life-cognitive-distortions-dr-david-burns/), you can do so at www.neilsattin.com.
 
 Mon, 02 Apr 2018 08:00:00 +0000
+
+
+### [106: Ask Dr. Helen (and David) — My Husband Doesn't Make me Feel Loved! What Can I Do?](http://feelinggood.libsyn.com/106-ask-dr-helen-and-david-my-husband-doesnt-make-me-feel-loved-what-can-i-do)
+
+This is the second podcast on relationship problems. with Dr. Helen Yeni-Komshian. In today's podcast, we address four questions from listeners like you:
+
+* **Our marriage lacks intimacy. What can I do?** A podcast fan named David explains that his relationship with his wife is no longer intimate; he complains that they only talk about day to day things on a superficial level. David wants to know if he needs to inject some conflict into the relationship to make it more meaningful or exciting.
+* **Why is my wife so critical of me?** David wants to know why his wife constantly peppers him and batters him with critical questions, and what he can about it.
+* **Why is my friend so critical and dogmatic?** Rajesh describes a friend who argues endlessly and accuses Rajesh of being irritating. His friend says, "Anyone would be upset when they try to talk to you!" What's up? Why is this happening? Who's really to blame?
+* **Adarah feels lonely** and tells her husband what he can do to make her feel loved--but it just doesn't seem to work! Why? And what CAN she do to improve her marriage?
+I think you will enjoy the lively dialogue between Fabrice, Helen and myself and see us struggling and making some mistakes, too, when we try to model more effective responses based on the Five Secrets of Effective Communication! We also stress, once again, the importance of Interpersonal Decision-Making any time you run into a conflict with a friend, colleague, or loved one.
+
+For more information on healing troubled relationships, you can read my book, [Feeling Good Together](https://www.amazon.com/Feeling-Good-Together-Troubled-Relationships/dp/0767920821), which is available as a paperback on Amazon. In addition, you can listen to our previous podcasts on the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf), beginning with **[Podcast #65](https://feelinggood.com/2017/12/04/065-five-secrets-training-enjoy-greater-intimacy/) (Enjoy Greater Intimacy) and several of the podcasts that follow.
+
+Mon, 17 Sep 2018 08:00:00 +0000
+
+### [144: Ask David--Relationships, Relationships, Relationships!](http://feelinggood.libsyn.com/144-ask-david-relationships-relationships-relationships)
+
+### My wife claims that I never listen! How can I **possibly** agree with her?  ### My wife left me! How can I correct the distortions in her criticisms? ### How can you deal with people who constantly wallow in self-pity? ### And more! Hi podcast fans,
+
+Today we've got some terrific Five Secrets questions that you have submitted.
+
+
+* **Mike #1:** I love your Five Secrets of Effective Communication. Why does secret #4, “I Feel” Statements, not include Thought Empathy?
+* **Mike #2:** I have seen communication models that include expressing and listening for needs. Aren’t needs and wants important and important to express?
+* **Al:** How can I help my wife recognize her many cognitive distortions, like All-or-Nothing Thinking? It seems hopeless!
+* **Guy:** If a loved one says, “You never listen,” how could I possibly find the truth in this statement? How could you genuinely agree with an All-or-Nothing statement such as, “You never ….”?
+* **Both Sonja and Eileen asked:** How can you deal with someone who constantly wallows in self-pity and plays the role of victim. It's exhausting!
+Thanks for tuning in, and keep the great questions coming!
+
+David and Rhonda
+
+
+Mon, 10 Jun 2019 08:00:00 +0000

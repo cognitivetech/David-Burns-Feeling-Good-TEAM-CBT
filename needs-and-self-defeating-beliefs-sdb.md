@@ -1,4 +1,36 @@
-# Self Defeating Beliefs
+# Needs, "needs" and Self Defeating Beliefs (SDB)
+
+
+### [038: Ask David — Negative Messages from Society](http://feelinggood.libsyn.com/038-ask-david-negative-messages-from-society)
+
+A listener named Daisy describes her despair at being unable to have a baby, despite intensive efforts at a fertility clinic. She gets well-meaning messages from friends, family and support groups that she really **needs** a baby in order to feel truly happy and fulfilled, and these messages make her feel anxious and depressed. But she wonders whether this is really true. Does she **really** need a baby to feel happy?
+
+In fact, we we get all kinds of messages from society that we need certain things in order to feel worthwhile, including:
+
+* Achievement / Success / Wealth
+* Intelligence
+* Perfection
+* Love
+* Approval
+* Popularity
+* Good looks
+
+Are these things really **needs**? Listen to today’s podcast and you may be surprised by the answer!
+
+Mon, 29 May 2017 05:00:00 +0000
+
+### [046: All You Need Is Love... or Do You?](http://feelinggood.libsyn.com/046-all-you-need-is-love-or-do-you)
+
+[The Beatles](https://www.youtube.com/watch?v=dsxtImDVMig) tell us that all we need really need is love, and in her famous song, “People,” [Barbara Streisand](https://www.youtube.com/watch?v=fPlQ6EtArSc) proclaims that “People who need people are the luckiest people in the world.” But is this really true?
+
+Fabrice asks David whether love is a human need? David describes hearing Dr. Aaron Beck proclaim that love is not an **adult** human need, and feeling shocked, during one of Dr. Beck’s cognitive therapy seminars in the 1970s. Although initially skeptical, David did a number of experiments to test this belief, and came to a startling conclusion. David describes the impact of needing love on his depressed and anxious patients, including lonely individuals who were constantly being rejected in the dating scene.
+
+You’ll find this podcast provocative, controversial, and hopefully interesting. We’ll also include a survey you can complete below, indicating your thoughts about this topic!
+
+In the next Feeling Good Podcast, David and Fabrice will discuss **Tools, Not Schools**, the title of David’s TEAM-CBT eBook for therapists, and the following podcast will discuss Relapse Prevention Training, since the likelihood of relapse after successful treatment is 100%. But if the patient is prepared and knows what to do ahead of time, the relapse, while often painful and disturbing, doesn’t have to be a significant problem.
+
+Mon, 24 Jul 2017 05:00:00 +0000
+
 
 ### [118: Self-Defeating Beliefs (Part 1) — The Beliefs That Defeat You](http://feelinggood.libsyn.com/118-self-defeating-beliefs-part-1-the-beliefs-that-defeat-you)
 

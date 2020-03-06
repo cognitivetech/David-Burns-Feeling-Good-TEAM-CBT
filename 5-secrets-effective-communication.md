@@ -170,3 +170,71 @@ At the end, Jill reads an emotional email from Lee describing how he relapsed an
 
 Mon, 23 Jul 2018 08:00:00 +0000
 
+
+### [126: The "Advanced" Secrets of Effective Communication](http://feelinggood.libsyn.com/126-ask-david-advanced-secrets-of-effective-communication)
+
+Learning to use the Five Secrets skillfully requires strong motivation and lots of practice, but the benefits can be tremendous. The Five Secrets have transformed my clinical work as well as my personal and professional relationships. And they’ve also had a huge impact on my teaching.
+
+But there are even more communication techniques that can be immensely helpful. In this podcast, we discuss [three advanced techniques](https://feelinggood.com/wp-content/uploads/2019/01/Advanced-Empathy-Techniques-v-1.pdf):
+
+
+* **Changing the Focus.** This technique can be tremendously helpful when there’s an “elephant” in the room.
+* **Multiple Choice Empathy.** This technique can be transformative when you’re trying to connect with a teenager, friend or loved one who refuses to talk to you.
+* **Positive Reframing.** This technique can be invaluable when you’re fighting with a colleague, patient, friend or family member, and you’re both feeling frustrated, angry, and upset.
+David emphasizes that these techniques may look easy, but they are actually difficult to learn and require lots of practice as well as the mindset of humility, as well as a strong desire to develop a more loving relationships with the person you’re not getting along with.
+
+People who are serious about learning can read **[Feeling Good Together](https://www.amazon.com/Feeling-Good-Together-Troubled-Relationships/dp/0767920821)** and do the written exercises while you read!
+
+
+
+Mon, 04 Feb 2019 09:00:00 +0000
+
+### [127: Communicating with the Opposite Side of the Political Divide](http://feelinggood.libsyn.com/127-communicating-with-the-opposite-side-of-the-political-divide)
+
+##### Can the Five Secrets of Effective Communication Help Us in this Era of Intensely Polarized Politics?
+
+Clearly, the nation is intensely divided, and passions on both sides of the political divide are characterized by hostility, frustration, and mistrust. Can the Five Secrets of Effective Communication help us communicate with colleagues, friends and loved ones who may have radically different political beliefs?
+
+Find out on this edition of the Feeling Good Podcast, as the David and Fabrice respond to Eileen, a podcast fan who kindly allowed us to share her intensely painful conflict with her mother with all of you. Eileen’s mother is an ardent Trump fan, and Eileen is an equally ardent anti-Trumper, and there have been plenty of tears on both sides of the aisle!
+
+Eileen wrote:
+
+> “How can you talk to someone with whom you fundamentally disagree? My Mom is a big fan of the current regime (Trump) and I’m horrified by what’s happened in the past two years and what’s coming. It’s hard for me to get past my rage at her. . . intensely distorted and not-reality based beliefs, fed by right-wing media. To be clear, she thinks exactly the same about my beliefs and information sources. I feel so stuck. . . and I would love to repair this relationship with her before she dies.”
+
+Can you identify with similar conflicts in your own family or circle of friends? I know that I can, and it’s quite painful. Fabrice and I will give you our take on a new approach to this widespread problem this Sunday!
+
+While you're listening, you can take a look at [Eileen's Relationship Journal](https://feelinggood.com/wp-content/uploads/2019/01/Relationship-Journal-pocdast-question-v-1.pdf). You may also want to review the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf) as well as the [three advanced communication techniques ](https://feelinggood.com/wp-content/uploads/2019/01/Advanced-Empathy-Techniques-v-1.pdf) we discussed in last week's podcast.
+
+
+Mon, 11 Feb 2019 09:00:00 +0000
+
+
+### [158: Changing the Focus: One of the Advanced Secrets of Effective Communication](http://feelinggood.libsyn.com/158-changing-the-focus-one-of-the-advanced-secrets-of-effective-communication)
+
+David and Rhonda are joined again today by David's neighbor, friend, and hiking buddy, Dave Fribush. We appreciate his superb technical skills and thank Dave for his support of our podcasts!
+
+Rhonda starts the podcast by reading a question from a podcast fan named Rajesh, who wrote:
+> I have often seen that estranged friends or family members do not talk or resolve a trivial conflict for years because one or both of them have ego issues or have fear of rejection. This problem of unfairness may even exist between a demanding parent and the child, ranging from secretly resenting to not talking at all. They might come face to face in family occasions or professional settings in case of friendship and bear the discomfort, but not attempt to reconcile.
+>
+> They might be suffering deep down emotionally but they refuse to accept that it matters. One or both members might feel they have been treated unfairly and expect apologies. But, both parties are scared to even make the move for the fear of being hurt again or rejected.
+>
+> On a personal level, I have faced such unfairness with a close friend. I see even if you forgive the other party, that element of resentment is still in their somewhere. How do you know you have truly forgiven someone and moved on? Whats the best that can be done at an individual level without involving the other party, at least till the time both are ready to talk it out, if it ever happens. 
+> 
+> Once again I thank you for all the selfless Good work you do for people through your knowledge sharing. My sincere best wishes to you and great thanks 🙏.
+>
+> Rajesh
+
+I appreciate this question, and it is a great introduction for our podcast on Changing the Focus, one of the three Advanced Secrets of Effective Communication. We recently introduced the three advanced secrets in [podcast #126, and you can listen to it for review if you like.](https://feelinggood.com/2019/02/04/126-how-to-communicate-with-someone-who-refuses-to-talk-to-you/)
+
+* **Changing the Focus.** This technique can be tremendously helpful when there’s an “elephant” in the room.
+* **Multiple Choice Empathy.** This technique can be transformative when you’re trying to connect with a teenager, friend or loved one who refuses to talk to you.
+* **Positive Reframing.** This technique can be invaluable when you’re fighting with a colleague, patient, friend or family member, and you’re both feeling frustrated, angry, and upset
+
+Today we take a deeper dive into Changing the Focus. This technique can be extremely helpful when you feel tense or awkward in your relationship with someone. For example, you may be arguing endlessly, or there could be some unacknowledged feelings that no one is talking about, like shame, anger, hurt, or resentment. When you use Changing the Focus, you gently point out what's happening, and focus on your feelings, and drawing out the other person's feelings, instead of continuing in the same pattern of arguing or avoidance.
+
+Although this technique can be tremendously helpful, it is very challenging, so I have written two memos explaining the technique in greater detail, with examples. One is for [therapists](https://feelinggood.com/wp-content/uploads/2019/08/Changing-the-Focus-for-therapists-v-3.pdf) and one is for the [general public](https://feelinggood.com/wp-content/uploads/2019/08/Changing-the-Focus-for-the-general-public-v-2.pdf). If you are interested in learning this technique, this would be a great starting place, and it might not hurt to read both memos. In addition, you have to be skillful with the Five Secrets of Effective Communication before trying this technique. That's a lot to ask, I know! 
+
+David, Rhonda, and Dave :)
+
+Mon, 16 Sep 2019 08:00:00 +0000
+
