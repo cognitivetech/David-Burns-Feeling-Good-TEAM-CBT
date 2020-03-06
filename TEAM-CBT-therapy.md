@@ -552,3 +552,30 @@ Let love appear!** **
 
 Brandon Vance, MD and Heather Clague, MD are both psychiatrists and certified TEAM-CBT therapists. They practice in Oakland, California.
 
+
+### [181: LIve Therapy with Sarah: Shrinks are Human, Too!](http://feelinggood.libsyn.com/181-live-therapy-with-sarah-shrinks-are-human-too)
+
+Mon, 24 Feb 2020 09:00:00 +0000
+
+> In today’s session, we are very grateful to Sarah, a certified TEAM-CBT therapist, for allowing us to share her very personal and powerful session with you. Sarah was having intense anxiety during her sessions with patients, and her anxiety was bordering on panic.
+
+> This is actually not unusual. In my experience, most shrinks struggle with feelings of insecurity from time to time. But when we shrinks experience insecurities, we often feel strong shame as well, telling ourselves that we “should” have it all together because we are supposedly “experts.”
+
+> Although Sarah brought a Daily Mood Log to the session, listing all of the negative thoughts that were triggering her anxiety, along with many other intense negative feelings, the session took an unexpected turn in the direction of the Hidden Emotion Model.
+
+> We’ve done several podcasts on this powerful technique before, and now you have the chance to see how it works first-hand! Instead of challenging Sarah’s negative thoughts, as we usually do, we asked whether there was something bothering Sarah that she wasn’t telling us about, due to her arguably excessive “niceness.”
+
+
+### [180: Feeling Great: The Book and the App!](http://feelinggood.libsyn.com/180-feeling-great-the-book-and-the-app)
+
+> Rhonda and David are joined today by Jeremy Karmel who is working with David on a new Feeling Great app.
+Rhonda begins by reading several amazing emails from fans whose lives have been changed by the podcasts as well as David’s books, including Jessica, Tim, and Mike. Thank you, everyone, for such kind and thoughtful comments!
+
+> David describes his upcoming book, **Feeling Great**, which will be released in September of 2020. It will move well beyond his first book, Feeling Good: **The New Mood Therapy**, all will incorporate all of the latest hi-speed treatment techniques in TEAM-CBT (aka “Feeling Great Therapy.”) David describes his excitement about the team he is working with to publish his latest book, including Linda Jackson at PESI (the publishing company), and Jenessa Jackson, his editor.
+
+> Rhonda asks Jeremy many questions about the amazing recovery he experienced in his work with Dr. May, and how he’s been doing since. Then Rhonda, Jeremy, and David address a number of intriguing questions about the new app. For example, there is tremendous evidence from research that David’s first book, **Feeling Good**, has significant antidepressant effects. In fact, many published studies have confirmed that more than 50% of depressed individuals will recover or improve dramatically within four weeks if you just give them a copy of the book.
+
+> Is it possible that an app that incorporates all the great methods in **Feeling Good**, plus all the new techniques in TEAM-CBT, could be even more effective? And if so, would this mean that an electronic app could even outperform human therapists as well as antidepressant medications?
+
+Mon, 17 Feb 2020 09:00:00 +0000
+

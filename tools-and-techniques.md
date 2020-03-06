@@ -27,6 +27,7 @@ I (DB) have developed 15 or 20 PAS techniques, and Jill and I used several of 
 
 Mon, 10 Apr 2017 05:00:00 +0000
 
+
 ### [033: Live Session (Mark) — Methods Phase (Part 5)](http://feelinggood.libsyn.com/033-live-session-mark-methods-phase-part-5)
 
 > David and Jill begin using M = Methods to challenge the Negative Thought Mark wants to work on first: “There must be something defective in my brain that prevents me from forming a loving relationship with my oldest son.” You may recall that Mark believed this thought 90%.
@@ -156,6 +157,14 @@ Mon, 30 Oct 2017 05:00:00 +0000
   > David explains that while this technique traces to the teachings of Freud, Freud might turn over in his grave and find it superficial or silly, since David simply tells anxious patients that they are suppressing or repressing something that’s bothering them, and insists they bring it to conscious awareness right away. David accepts this criticism, but also adds that the Hidden Emotion Technique works and frequently triggers complete recovery with patients who are only partially helped by the skillful use of cognitive techniques and exposure techniques.
 * [028: Scared Stiff — **The Motivational Model** (Part 6)](http://feelinggood.libsyn.com/028-scared-stiff-the-motivational-model-part-6)
   > The key is bringing the patient’s subconscious resistance to conscious awareness, and melting it away with paradoxical techniques. This is absolutely critical if you are hoping to see a complete elimination of symptoms in any type of anxiety.
+
+### [072: Secrets of Weight Loss — Make Good on Your New Year's Resolutions!](http://feelinggood.libsyn.com/072-secrets-of-weight-loss-make-good-on-your-new-years-resolutions)
+
+You definitely do NOT want to lose weight. You probably DO want to be thin and attractive, and in great physical condition, but you DON'T want to lose weight. Do you know why? There are only two things that you can do to lose weight--diet and exercise. And they both suck!
+
+David describes two new, powerful techniques he has created for resolving this dilemma--the Double Paradox and Devil's Advocate Technique. David and Fabrice bring these techniques to life for you. If you are interested in losing weight, make sure you do the two exercises on paper while listening to this podcast.
+
+Mon, 22 Jan 2018 09:00:00 +0000
 
 ### [074: Five Simple Ways to Boost Your Happiness (Part 1) — The Pleasure Predicting Sheet](http://feelinggood.libsyn.com/074-five-simple-ways-to-boost-your-happiness-part-1-the-pleasure-predicting-sheet)
 
