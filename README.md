@@ -52,14 +52,6 @@ Mon, 09 Jan 2017 06:00:00 +0000
 
 Mon, 16 Jan 2017 06:00:00 +0000
 
-### [021: Ask David — Shameful Sexual Fantasies](http://feelinggood.libsyn.com/021-ask-david-shameful-sexual-fantasies)
-
-A listener with OCD is plagued with intrusive and shameful sexual fantasies. David discusses his treatment strategies for a young man from Argentina who was struggling with forbidden fantasies of Jesus having sex with the Virgin Mary in all positions of the Kama Sutra, but the harder he tried to control them, the more intense and tantalizing they became. Being a good Catholic lad, he was terrified and tearful he would burn in hell if he didn’t overcome this problem.
-
-If you’ve ever struggled with shameful sexual fantasies, you might be intrigued by this fascinating discussion of **Cognitive Flooding**, therapeutic resistance, and the **Hidden Emotion Technique**!
-
-Mon, 30 Jan 2017 06:00:00 +0000
-
 ### [036: Ask David — Empowering the Victim With the Five Secrets](http://feelinggood.libsyn.com/036-ask-david-empowering-the-victim-with-the-five-secrets)
 
 A blog reader made a fairly strong and impassioned comment that sometimes asking the patient to examine ways she or he may be contributing to the problem may be a mistake when the patient really IS a victim, and cautioned against blaming the victim. David’s goal is never to blame patients, but rather to empower you.
@@ -75,31 +67,18 @@ Mon, 15 May 2017 05:00:00 +0000
 
 A listener named Benjamin asks about procrastination. He wrote:
 
-“The live therapy with Marilyn was very interesting - like other listeners, I was impressed by her character and strength.
+> “The live therapy with Marilyn was very interesting - like other listeners, I was impressed by her character and strength.
 
-“Towards the end of this most recent podcast, you were musing on what topics to cover in future podcasts. I would love to hear about how you treat people suffering from chronic laziness ("Do Nothingism"). In particular, there seems to be a strong potential of a Catch-22 with Process Resistance: The patient cannot find the motivation to do anything, yet they have to carry out the process (do the homework) to improve.
+> I would love to hear about how you treat people suffering from chronic laziness ("Do Nothingism"). In particular, there seems to be a strong potential of a Catch-22 with Process Resistance: The patient cannot find the motivation to do anything, yet they have to carry out the process (do the homework) to improve.
 
-“Even worse, in "Feeling Good", you categorize "Do Nothingism" into around 10 different categories, and suggest a different approach for each one. What should a lazy person do, who identifies with multiple categories, but is already starting to feel overwhelmed at the prospect of doing one of those activities, let alone five of them?
+> “Even worse, in "Feeling Good", you categorize "Do Nothingism" into around 10 different categories, and suggest a different approach for each one. What should a lazy person do, who identifies with multiple categories, but is already starting to feel overwhelmed at the prospect of doing one of those activities, let alone five of them?
 
-“I would love to hear David's thoughts on this!”
 
-David and Fabrice begin by thanking Benjamin, and David emphasizes how helpful and inspiring it is to receive specific questions like this, which makes it easy to create a (hopefully) informative and interesting podcast.
+David outlines a multi-step approach, based on someone who has ten years of unfiled papers that have piled up in his office, so that by now 15 feet of desk space is completely covered by piles of papers roughly one foot high. 
 
-David says that his thinking about the treatment of procrastination has changed greatly since he wrote **Feeling Good**. One big change is that he no longer tries to “help” individuals who procrastinate, since this will cause them to continue to procrastinate, and the failure will now be the failure of the therapist, who’s “helping” wasn’t good enough.
-
-Instead, David outlines a multi-step approach, based on someone who has ten years of unfiled papers that have piled up in his office, so that by now 15 feet of desk space is completely covered by piles of papers roughly one foot high. Fabrice plays the role of the resistant patient, and David plays the role of the therapist.
-
-The steps include:
-
-**Paradoxical Agenda Setting:** David asks, “The procrastination seems to be working for you. Why would you want to change? Let’s make a list of all the benefits of procrastination, and all the reasons NOT to change.” David emphasizes that the patient has to convince the therapist that this is something he really **does** want to change. It’s NOT the therapist’s role to help or to convince the patient to change!
-
-**Miracle Cure Question:** What kind of help would you like in today’s session? Most patients say they need help with motivation. David declines to offer this, explaining that it isn’t on the therapeutic menu today—only the “Blue Plate Special!” The patient must agree to begin working on the filing in spite of having no motivation.
-
-David also explains the underlying concept behind this strategy: most procrastinators are waiting for motivation, but that never works. You’ll be waiting forever, because you’re NEVER going to feel like doing all that filing! You aren’t entitled to motivation!
-
-Productive individuals know that action comes first, and motivation comes second.
-
-**Specificity:** What time would you like my help in overcoming your procrastination? The patient’s requests for help yesterday or tomorrow are declined by the therapist, so they settle on 6 PM today.
+* **Paradoxical Agenda Setting:** David asks, “The procrastination seems to be working for you. Why would you want to change? Let’s make a list of all the benefits of procrastination, and all the reasons NOT to change.” David emphasizes that the patient has to convince the therapist that this is something he really **does** want to change. It’s NOT the therapist’s role to help or to convince the patient to change!
+* **Miracle Cure Question:** What kind of help would you like in today’s session? Most patients say they need help with motivation. David declines to offer this, explaining that it isn’t on the therapeutic menu today—only the “Blue Plate Special!” The patient must agree to begin working on the filing in spite of having no motivation.
+* **Specificity:** What time would you like my help in overcoming your procrastination? The patient’s requests for help yesterday or tomorrow are declined by the therapist, so they settle on 6 PM today.
 
 **Little Steps for Big Feats:** Let’s list the first five things you would need to do tonight at 6 PM, making sure that every step can be completed in 15 to 30 seconds. They list these steps:
 
@@ -131,6 +110,19 @@ Productive individuals know that action comes first, and motivation comes second
 David confesses the problem is one that he actually had, and describes how he solved it, using this exact approach!
 
 Mon, 11 Sep 2017 05:00:00 +0000
+
+
+### [058: Ask David — Third-Wave Therapies & Exposure for OCD](http://feelinggood.libsyn.com/058-ask-david-third-wave-therapies-exposure-for-ocd)
+
+Mon, 23 Oct 2017 05:00:00 +0000
+
+> David and Fabrice begin by reading several incredibly touching reader comments on the live therapy with Marilyn. 
+
+> David addresses two questions posed by listeners. The first question has to do with so-called “third wave” CBT as well as Mindfulness-Based CBT and other innovations in CBT. 
+
+> Another listener asked why David did not use Exposure initially in his treatment of the woman who was afraid that her baby would be switched at the hospital, and that she’d end up with the wrong baby.
+
+> David argues that for an optimal outcome, he combines four treatment models with every anxious patient: the Motivational Model, the Cognitive Model, the Exposure Model, and the Hidden Emotion Model.
 
 ### [061: Ask David — Test Validity, Uncovering the Negative Thoughts, Benefits of Laziness, and More...](http://feelinggood.libsyn.com/061-ask-david-test-validity-uncovering-the-negative-thoughts-benefits-of-laziness-and-more)
 
@@ -410,10 +402,6 @@ Mon, 26 Aug 2019 08:00:00 +0000
 
 > Lorraine, Rhonda, David and Anna quickly diagnose the most likely cause of Estefania’s stuckness—she is trying to “help” her patient without first melting away her patient’s resistance. This is the cause of practically all therapeutic failure, and you’re not really doing TEAM-CBT if you don’t know how to eliminate the patient’s resistance.
 
-> Once Estafonia and her patient list all these positives, Estafonia could ask her patient, “Given all these advantages and positive qualities, maybe it wouldn’t be such a good idea to stop telling yourself, ‘I’m fat.’ This thought seems to be working for you in a really positive way, and also reflects your core values.”
-
-> That’s the essence of Paradoxical Agenda Setting. We try, in a genuine way, to honor the patient’s resistance, rather than trying to sell the patient on change. This is very difficult for therapists to learn because of the compulsion to save, help, or rescue the patient.
-
 > Anna and Lorraine explain why the T = Testing and E = Empathy of TEAM were so critical to the success of the therapy. Anna says that Lorraine was, in fact, the first therapist “who **really** got me, and **really** understood me!”
 
 > Anna emphasizes the enormous importance of the A = Paradoxical Agenda Setting (aka Assessment of Resistance) as well. Lorraine helped Anna discover what was beautiful and awesome about all of her negative feelings, including severe depression, shame, anxiety, anger, loneliness, and even hopelessness. 
@@ -444,16 +432,6 @@ Mon, 02 Sep 2019 08:00:00 +0000
 
 > **Robert** also asks: My other question is an idea for future podcasts and it is...How about critiquing the therapeutic approach we see so often on television and in the movies?
 
-> Some of the Hollywood therapists people know best are:
-
-* Judd Hirsch as the shrink in Ordinary People
-* Lorraine Bracco as the shrink in The Sopranos
-* Peter Bogdanovich as the shrink's shrink in The Sopranos
-* Billy Crystal as the shrink in Analyze This!
-* Robin Williams in Good Will Hunting
-* Kelsey Grammer in Frasier
-I am sure there are many others. These are the ones who quickly came to mind
-
 [Therapists on the Big and Small Screens versus Real Life](https://www.huffpost.com/entry/therapists-on-the-big-and_b_4263798)
 
 **References for Nathan**
@@ -461,24 +439,6 @@ I am sure there are many others. These are the ones who quickly came to mind
 Burns, D., Westra, H., Trockel, M., & Fisher, A. (2012) Motivation and Changes in Depression. **Cognitive Therapy and Research** DOI 10.1007/s10608-012-9458-3 Published online 22 April 2012.
 
 Hatcher, R. L., Barends, A., Hansell, J. & Gutfreund, M.J. (1995). Patients' and therapists' shared and unique views of the therapeutic alliance: An investigation using confirmatory factory analysis in a nested design. **Journal of Consulting and Clinical Psychology, 63(4)**, 636 - 643.
-
-
-### [162: HIgh-Speed Cure for OCD (Obsessive Compulsive Disorder)](http://feelinggood.libsyn.com/136-high-speed-cure-for-ocd-obsessive-compulsive-disorder)
-Mon, 14 Oct 2019 08:00:00 +0000
-
-### “Yikes! I might get contaminated!” ### The Treatment of Sara Today we are joined by a woman named Sara, who will be featured in one of the chapters from my new book, **Feeling Great**.
-
-> You are probably aware that OCD plagued the life of the billionaire playboy, Howard Hughes, featured in the recent film, “The Aviator.” During the last years of his life, he became totally consumed by concerns about germs, and ended up isolated in the penthouse suite at the top of a hotel in Las Vegas. According to a “psychological autopsy” ([https://www.apa.org/monitor/julaug05/hughes](https://www.apa.org/monitor/julaug05/hughes)) published by the American Psychological Association, Hughes lay naked in bed in darkened hotel rooms in what he considered a germ-free zone. He even wore tissue boxes on his feet to protect them, and burned his clothing if someone near him became ill.
-
-Sara, today’s guest, was a victim of the same type of OCD. She describes how her intense fears of germs and contamination came on more than 20 years ago, and the devastating impact of the OCD on her as well as her relationships with friends and family. She also describes her shame about her rituals of constantly washing her hands and desperately trying to avoid contamination.
-
-
-> Wow! What a beautiful day! Thank you, Rhonda and David for the amazing opportunity to share my story! I feel very selfish but I enjoyed every minute of it. You both made me feel so comfortable and welcome. You two are so incredibly AWESOME! You make a superb team! :)
-
-
->Sara Shane is a certified TEAM-CBT therapist practicing in the central valley of California (Stockton). She is multi-lingual and offers intensives—extended, single-session treatment of depression and all of the anxiety disorders. And, here’s something fantastic—although Sara is a superb therapist, her fees are modest, thus bucking the current trend of charging outrageous fees for psychotherapy in California. This is something I really admire and appreciate!
-
-If you would like to contact Sara, you can reach her at: 209-476-8867.
 
 ### [163: Ask David: Anxiety, Dreams, Cyclical Negative Thoughts, Secrets of Selling, Exposure, and more](http://feelinggood.libsyn.com/163-ask-david-anxiety-dreams-cyclical-negative-thoughts-secrets-of-selling-exposure-and-more)
 
@@ -492,27 +452,11 @@ Mon, 21 Oct 2019 08:00:00 +0000
 
 ### [164: How to HELP, and how NOT to Help!](http://feelinggood.libsyn.com/164-how-to-help-and-how-not-to-help)
 
-Lately, I’ve received numerous emails asking, in essence, "how can I help my loved one who has this or that problem?" I would say that I get several emails like that every week.
-For example, here's one from a man we’ll call “Karl.”
-Love you podcasts. Listen as often as I can. keep reading your books.
-Our son is in an unhappy marriage. Last night we talked and he mentioned that there is no love in their marriage. Just coldness. The children "feel" the chasm. There is a lack of trust in the home.
-Our son feels he did not protect the children in defense of their mom, even though he disagreed with her. Now the children feel their father does not have their best interests. Our daughter-in-law feels that everything is fine. She uses the passive-aggressive "silent treatment" to punish others.
-Our son says she is controlling and manipulative, and that the children have become that way also. There's no truth in the home. Years ago, she wanted them to go to counseling, but our son refused; now the tables are turned.
-Sad. We want to help but don't know how to approach it.
-What podcasts would be helpful to us? And to our son and daughter-in-law? We visit our grandchildren often, sometimes one-on-one. Communications are open with them and with our son.
-Daughter-in-law feels, and tells others, we are conspiring against her
-Karl
-Thank you Karl, for that moving email. It can be really sad and frustrating to see a couple in conflict who are at odds with each, **especially** when your son and grandchildren are involved. And I can imagine you might also be feeling anxious and a bit helpless, and deeply concerned!
-When I wrote **Feeling Good** forty years ago, I tried to make it clear that the cognitive therapy tools I described in that book are for people to use to help themselves. It is okay to correct your own distorted negative thoughts in order to break out of a bad mood. But it is generally NOT a good idea to try to correct someone else’s distorted thoughts, because they’ll just get ticked off at you!
-This is a very understandable error, because you may get really excited by the things I’m teaching, and how helpful they can be when you’re feeling depressed, anxious, or insecure. So it just makes sense that you would want to share these tools with others.
-But those are generally NOT the tools to use when you’re talking to your son, daughter, spouse, or friend who’s feeling down in the dumps. There **is** a way to help someone you love who’s hurting—but you’ll have to use an entirely different set of tools and skills—the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf)—WITHOUT trying to “help.”
+Mon, 28 Oct 2019 08:00:00 +0000
 
-So, the short answer to your question is—skillful listening is all that’s called for. Anything more runs the risk of getting you into trouble. But this may require a radical change in the way you communicate, as well as your personal philosophy.
-
-Let’s talk about what TO do, and what NOT to do when patients, friends or people you care about express angst, or seem troubled, or describe problems in their lives, and they seem to be hurting a lot.
+> So, the short answer to your question is—skillful listening is all that’s called for. Anything more runs the risk of getting you into trouble. But this may require a radical change in the way you communicate, as well as your personal philosophy.
 
 **DO NOT**
-
 
 * Give advice
 * Try to help
@@ -521,27 +465,16 @@ Let’s talk about what TO do, and what NOT to do when patients, friends or peop
 * Try to get the other person to think or act more positively
 * Try to minimize the problem by saying it’s not that bad, or things will get better.
 * Point out ways the other person may be thinking or acting in a self-defeating manner.
-Before we tell you what **does** work, let me focus on just one of these errors, to bring it to life for you. Recently, Rhonda and I recorded a live therapy session with a man named who was upset because his mother had lost the use of her legs to due a rare neurological disorder, and needed much greater care in an assisted living facility. This required selling the house his mother was living so they could afford the assisted living facility, and it was a great loss for everyone, since Kevin was raised in that house, and his parents and grandparents had lived there, too.
-
-After Rhonda and I empathized with him for about thirty minutes, we asked the other therapists to offer empathy as well, as part of their practice and training that evening. We stressed the importance of simply summarizing what Kevin had told us (Thought Empathy) and how he was feeling (Feeling Empathy), without trying to “help.” One of the therapists, who was new to the group, kind of missed the mark, She did what we call “cheerleading,” telling Kevin what a wonderful and heroic person he was without acknowledging what he’d be saying and how painful it was for him.
-
-You’ll hear this brief excerpt from the session in the podcast. When we asked Kevin how he felt about her comment, he had to tell her that he was embarrassed, and not helped, by what she’d said.
-
-Here’s why. When you don’t acknowledge someone’s profound negative feelings of loss, anxiety, sadness, anger, and more, you might unintentionally convey the message that you don’t want to hear about how they really feel inside. And when you cheerlead, it also conveys the message that the person is not very intelligent, and simply has to be cheered up, and then everything will be okay!
-
-We cannot be too hard on this therapist, because her efforts came from the heart, and I'm sure she felt sad for this man. And most of us have made the same mistake at times, or even often. I frequently hear parents trying to cheer their children up, or trying to tell their children what to do, or how to change, without really listening.
-
-But, most of the time, it just doesn’t work like that!
-
-Now that you know what NOT to do, what can you do that WILL help?
 
 **DO**
 
-Use the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf), with an emphasis on the listening skills. One of the most important skills is called Feeling Empathy—simply acknowledging how the other person is feeling, and asking them to tell you more, and if you got it right.
+Use the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf), with an emphasis on the listening skills. 
 
-For example, let’s say a friend or family member is procrastinating on something important, like a research report or college application, and is feeling pretty upset and self-critical. You could say something like this: “It sounds like you’re beating up on yourself for procrastinating, I’m wondering if you’re feeling
+> One of the most important skills is called Feeling Empathy—simply acknowledging how the other person is feeling, and asking them to tell you more, and if you got it right.
 
+> For example, let’s say a friend or family member is procrastinating on something important, like a research report or college application, and is feeling pretty upset and self-critical. 
 
+> You could say something like this: “It sounds like you’re beating up on yourself for procrastinating, I’m wondering if you’re feeling
 
 * down, sad or depressed?
 * anxious, worried, pressured, or nervous?
@@ -552,659 +485,217 @@ For example, let’s say a friend or family member is procrastinating on somethi
 * discouraged or hopeless?
 * stuck or defeated?
 * angry, annoyed, hurt, or upset?”
-I find that people really like it when I ask these questions, and I let them answer each one. Then I ask them about their negative thoughts. What are they telling themselves? What are the upsetting messages?
 
-When you use this approach, you are literally doing nothing to “help” the other person, but if you listen skillfully, she or he will probably really appreciate your listening, and you may end up feeling really close. In fact, I (David), had this exact experience just a couple days ago with a student who was struggling and feeling down.
+> I find that people really like it when I ask these questions, and I let them answer each one. Then I ask them about their negative thoughts. What are they telling themselves? What are the upsetting messages?
 
-Often, the person who’s depressed will be someone you love, like a family member, so your concerns for him or her, and your desire to “help,” are an expression of your love. But listening skillfully will likely be a whole lot more effective. And you can express your own feelings, too, with "I Feel" Statements, like "I feel sad to hear how down you've been feeling, because I love you a lot."
+> At the beginning of every therapy session, I empathize without trying to help, exactly as I’ve been teaching you in this podcast, and in this document, and I give the other person some time—typically about 30 minutes or so—just to vent while I use the Five Secrets of Effective Communication—listening skillfully—without trying to “help.”
 
-**Example**
+> Then I ask the patient to grade me on empathy. I say, “How am I doing so far in terms of understanding how you’re thinking and feeling? Would you give me an A, a B, a C, or perhaps even a D?”
 
-A woman named Clarissa was concerned because her son, Billy, who is in his early 20s, had been severely depressed for several years, and had not responded to treatment with antidepressants and even lithium. Clarissa had read my book, **Feeling Good**, and listened to almost all of the Feeling Good Podcasts. She described herself as a true “TEAM-CBT convert because she’d worked with a therapist trained in TEAM-CBT and no longer suffered from the depression and anxiety she’d struggled with most of her adult life. She agreed with a lot of what I’d said on the podcasts about the chemical imbalance theory (there’s no convincing evidence for it) and antidepressants (recent research suggests they do not outperform placebos to a clinically significant degree).
+> Most of the time, the other person WILL give you a grade. If they give you an A, you’re in good shape. But if they give you an A-, or a B+, or worse, ask them to explain the part you’re missing, or not getting right.
 
-But Billy was saying things like this:
+> When they tell you, you can use the Five Secrets again, summarizing the part you missed, and then ask what your grade is, to see if you’ve improved. Usually, your grade will improve a lot.
 
-“Mom, I KNOW I have a chemical imbalance because this cloud will suddenly come over me, and I feel TERRIBLE. It’s not about negative thoughts—I don’t have any negative thoughts. My depression is clearly the result of a chemical imbalance, and I feel doomed by my genes.”
+> Do NOT try to “help” until you received an A!
 
-Then Clarissa would try to cheer him up, which always failed, or would try to convince him that it’s not about a chemical imbalance and that if he really tried TEAM-CBT, he could overcome his depression, just as she had done. These are such common errors!
+> Then I do what’s called the Invitation Step in TEAM therapy—I ask if the other person wants help with any of the problems s/he has been discussing. You can ask the same question.
 
-How could Clarissa respond more effectively? If she focuses on good listening skills, instead of trying to win an argument, she might say something like this:
+> If the other person does NOT want help, but just wanted to talk and get support, your job is done. You can also ask if they want to talk some more. Most of the time, all people want is a little listening and support, and they’re not looking for help or advice.
 
-“Billy, I really love you, and feel so sad to hear about your depression. You’re absolutely right, too. Sometimes a bad mood seems to come from out of the blue, with no rhyme or reason. And genes can be important. I've struggled with depression in the past, and maybe you've inherited some of my genes. Tell me more about how you’ve been feeling. Have you been feeling down, anxious, ashamed, hopeless, or angry? What you’re saying is so important, and I really want to her what's it's been like for you.”
-
-Can you see that Billy would be more likely to open up and might even share some things that he’s been hiding, out of a sense of frustration, anger, or shame? And can you also see that providing some love and support—pure listening, with compassion—might be a lot more helpful than getting into an argument about the causes of depression? He might open up about all sorts of things that have been eating away at him—problems with girls, sex, sports, or his studies, or concerns about his looks, or even feelings of shame about his depression.
-
-The next question is—when DO you help someone? And HOW do you help them.
-
-The approach I use as a therapist might be the same approach you’d want to use. At the beginning of every therapy session, I empathize without trying to help, exactly as I’ve been teaching you in this podcast, and in this document, and I give the other person some time—typically about 30 minutes or so—just to vent while I use the Five Secrets of Effective Communication—listening skillfully—without trying to “help.”
-
-Then I ask the patient to grade me on empathy. I say, “How am I doing so far in terms of understanding how you’re thinking and feeling? Would you give me an A, a B, a C, or perhaps even a D?”
-
-Most of the time, the other person WILL give you a grade. If they give you an A, you’re in good shape. But if they give you an A-, or a B+, or worse, ask them to explain the part you’re missing, or not getting right.
-
-When they tell you, you can use the Five Secrets again, summarizing the part you missed, and then ask what your grade is, to see if you’ve improved. Usually, your grade will improve a lot.
-
-Do NOT try to “help” until you received an A!
-
-So, let’s assume you’ve gotten an A. What then?
-
-Then I do what’s called the Invitation Step in TEAM therapy—I ask if the other person wants help with any of the problems s/he has been discussing. You can ask the same question.
-
-If the other person does NOT want help, but just wanted to talk and get support, your job is done. You can also ask if they want to talk some more. Most of the time, all people want is a little listening and support, and they’re not looking for help or advice.
-
-But if the other person DOES want help, you can ask what kind of help they’re looking for. Then you can decide if you’re in a position to provide that type of help. Sometimes, the help they're looking for might not be something you can provide. For example, they may be angry at someone they're not getting along with, and may want you to tell the other person to change. I explain that this is not something I would know how to do, but I could possibly help them change the way they interact with that person.
+> But if the other person DOES want help, you can ask what kind of help they’re looking for. Then you can decide if you’re in a position to provide that type of help. Sometimes, the help they're looking for might not be something you can provide. 
 
 This may sound really simple, but it takes a lot of practice and determination! It can be a lot harder than it looks.
 
-Many people will NOT want to go down this road, and will insist on jumping in to help or cheerlead. You can do that if you want, but in my experience, pushing help on people who are hurting is rarely helpful. The “need” to help or rescue can result from your love and compassion, but it can also result from narcissism, codependency, or the desire to control or dominate another person. I see it as a kind of an addiction, too.
+* You can read my book, [**Feeling Good Together**](https://amzn.to/2YSDP64), and do the written exercises while reading, so you can master the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf). 
 
-If you want to learn more about this, here are some things you can do:
-
-* You can read my book, [Five Secrets of Effective Communication](https://amzn.to/2YSDP64">**Feeling Good**</a> <a href= "https://amzn.to/2YSDP64">**Together**</a>, and do the written exercises while reading, so you can master the <a href= "https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf). This is a BIG assignment, but the reward, in terms of more loving and satisfying relationships with the people you love, will be equally great.
-* You can try using "I Feel" Statements and Feeling Empathy with at least one person every day this week.
-[<img class= " size-full wp-image-357 aligncenter" src= "https://feelinggood.com/wp-content/uploads/2013/07/feelinggoodtogether.jpeg" alt="Feeling Good Together" width="182" height="277" />](https://amzn.to/2YSDP64)
+![](https://feelinggood.com/wp-content/uploads/2013/07/feelinggoodtogether.jpeg)
 
 David D. Burns, M.D. & Rhonda Barovsky, Psy.D.
-
- 
-
-
-
-Mon, 28 Oct 2019 08:00:00 +0000
 
 ### [165: Ask David: Why do shrinks kill themselves? How to find out if your loved one is suicidal.](http://feelinggood.libsyn.com/165-ask-david-why-do-shrinks-kill-themselves-how-to-find-out-if-your-loved-one-is-suicidal)
 
-In today's podcast, David and Rhonda answer two questions about suicide submitted by podcast fans.
+Mon, 04 Nov 2019 09:00:00 +0000
+
 **Question 1. Why do shrinks kill themselves?**
-Dear Dr Burns,
-Before I get to my question (which I hope you will consider addressing in your 'Ask David' segment of the podcast), I would like to extend my gratitude to you. Your book, Feeling Good, came to me at a time when I was struggling to make sense of my depression and anxiety, and it has been a vital part of my recovery journey. The exercises and the podcast have been such lifelines, and I am grateful to you for the incredible and life-changing work that you do.
-I know you have addressed the topic of suicide in a previous episode, but I recently was struck by a piece of news from my alma mater, the University of Pennsylvania, where a senior member of the college's counselling services (CAPS) died by suicide. Here was someone who had spent his life's work on promoting suicide prevention, and had a great deal of knowledge on resilience. How can we process/understand the decisions that someone like this might make to take his life. How can I arrive at the understanding that his decision doesn't necessarily spell doom for the rest of us? What TEAM-CBT exercises can we do to make sense of the world when it might not make much sense at first glance, during situations like these?
-Thank you very, very much,
-Sindhu
-**Dr. David's Answer**
-Thanks, Sindhu, this is a really great question.
-I’ll put this in the Ask David folder. Should I use your name?
-
-Here’s the short answer. It’s a lot like saying that an infectious disease expert shouldn’t get pneumonia, or that an orthopedic surgeon shouldn’t have back pain, or a broken leg. I know of at least three mental health professionals who have committed suicide, but my knowledge based is tiny. I’m sure there are thousands of mental health professionals who have committed suicide.
-
-People can commit suicide for many reasons, and I can only mention a few here, as my knowledge, like yours, is limited.
-
-
-* Hopelessness is one of the most common causes of suicide in depressed individuals. Hopelessness always results from cognitive distortions, and never from a valid appraisal of one’s circumstances. Depressed people often turn to suicide, thinking (wrongly) that it is the only escape from their suffering.
-* You may have done something that you are profoundly ashamed of, and fear it is about to be made public. Like the fellow in New York arrested for child abuse who hung himself just a few weeks ago.
-* I am convinced that sometimes people commit suicide to get back at someone they are angry with, someone perhaps who rejected them.
-* Physician-assisted suicide. I believe that physician assisted suicide is absolutely indicated and compassionate if someone is in excruciating pain from an irreversible terminal illness.
-* The Achievement Addiction. Feelings of failure and worthlessness. In our culture, we sometimes (wrongly) base our feelings of self-esteem on our success in life, our income, or our achievements. And so, if your achievements are only “ordinary,” you may feel worthless, like “a failure,” and kill yourself.
-* The Love Addiction: Many people (wrongly) tell themselves they must be loved to feel happy and worthwhile, and then kill themselves when they are rejected by someone they thought they loved and “needed.”
-* Drug and alcohol abuse: These habit, when severe, can greatly disrupt a person’s life. They can also make someone more impulsive, and more likely to jump or pull the trigger when intoxicated.
-There are likely way more causes than just these common ones. For example, a psychotic process like schizophrenia might sometimes play a role as well.
-
-I suspect you may have a hidden “Should Statement,” telling yourself that a mental health professional “should not” get depressed or have the urge to commit suicide. But to me, that would be a nonsensical claim, and it isn’t even clear to me why you might think that way. In fact, most people are drawn to this profession because of their own unresolved suffering. There is, I suspect, MORE depression and anxiety in mental health professionals, but I have not seen data, so I’m not certain of this. But I’ve trained tens of thousands of mental health professionals, and pretty much ALL of the ones I’ve known personally have struggled at times, and sometimes intensely.
-
-People also ask, “Why did so and so commit suicide? S/he was so famous and loved and wealthy!” Well, famous and loved and wealthy people often suffer and commit suicide, too.
-
-Finally, I would say that suicide is both tragic and devastating—for the patient for sure, for the family and friends who typically suffer for years, and for the therapist as well. Fortunately, the family and friends can be helped, if they ask, but it is too late for the person who was depressed. And the tragedy is needless in most cases, since the patient’s intense negative feelings can be treated effectively in nearly all cases.
-
-David
-
 **Question 2. How can you find out if a friend or loved one is suicidal?**
-
-Many people are afraid to ask a depressed friend or family member if they are feeling suicidal, fearing this will create conflict or may even cause the person to become suicidal. For the most part, these fears are unfounded, and the biggest mistake could be avoiding the topic.
-
-Most people who are feeling suicidal are willing to discuss their feelings fairly openly. Several types of questions can be useful.
-
+  > Most people who are feeling suicidal are willing to discuss their feelings fairly openly. Several types of questions can be useful.
 **Suicidal thoughts or fantasies.** Most people with depression due have suicidal thoughts or fantasies from time to time, and these are not necessarily dangerous.
-
-First, you can ask, “do you sometimes feel hopeless, or have thoughts of death, or wishing you were dead?” If s/he says yes, you can ask him / her to tell you about these thoughts and feelings. You can also ask if s/he thinks of suicide as the only way out of his / her suffering.
-
-Second, you can ask if s/he simply has passive suicidal thoughts, like “Sometimes I feel like I’d be better off if I were dead,” or active suicidal thoughts, like, “Sometimes I have fantasies of killing myself.”
-
 **Suicidal urges.** You can ask if s/he sometimes has urges to kill himself / herself. Suicidal thoughts or fantasies without suicidal urges are usually not especially dangerous.
-
 **Suicidal plans.** You can ask if s/he has made any plans to actually commit suicide. If so, what method would s/he use? Jumping? Shooting? Hanging? Cutting?
-
-You can also ask if s/he has been acting on these plans. For example, if shooting is the choice, you can ask if s/he has access to a gun and bullets. If jumping is the choice, you can ask where s/he plans to jump from.
-
 **Deterrents.** When evaluating suicide, you can also ask if there are any strong deterrents, such as religious beliefs, impact on family and friends, and so forth. If there are no strong deterrents, the situation is more dangerous.
-
 **Desire to live, desire to die**. You can also ask the person how strong their desire to live is, and how strong is their desire to die?
-
 **Past suicide attempts.** If the person has made suicide attempts in the past, the risk of a future suicide attempt is greater.
-
 **Drugs and alcohol.** You can ask if the person drinks or uses drugs, and has ever has a stronger urge to commit suicide when intoxicated. This is a danger sign.
-
 **Impulsiveness.** Some people make suicide attempts when they’re feeling impulsive, kind of on the spur of the moment. You can ask if they every have these kids of sudden impulses.
-
 **Willingness to reach out.** You can ask if they’d be willing to reach out and ask for help if they ever have a suicidal urge.
-
 **Honesty.** You can ask if they were felt reasonably open and honest in asking your questions, or if it was difficult to answer some of the questions.
-
-Once you have explored these types of questions, you can decide whether action is necessary. If the person seems in danger of making a suicide attempt, you can bring him / her to an emergency room for an evaluation.
-
-If s/he refuses, you can dial 911 and ask for help. Generally, the police will come immediately and do a safety check, and bring the person to an emergency room involuntarily if necessary. You can also call his or her therapist and alert that person to the situation.
 
 This may all sound grim and very unpleasant, but these kinds of conversations can sometimes be lifesaving, and can protect you from much greater pain later on.
 
-In a future podcast, we will focus on this question: How do you treat someone who is suicidal using TEAM-CBT?
-
 David D. Burns, M.D. & Rhonda Barovsky, Psy.D.
-
- 
-
- 
-
-
-
-Mon, 04 Nov 2019 09:00:00 +0000
 
 ### [166: Escape from Physical Pain: An Interview with Dr. David Hanscom](http://feelinggood.libsyn.com/166-escape-from-physical-pain-an-interview-with-dr-david-hanscom)
 
-In today's podcast, David and Rhonda interview Dr. David Hanscom, a renowned and controversial spine surgeon who gave up a large and lucrative surgical practice in favor of helping and educating people struggling with back pain, directing them on the path to recovery **without** surgery or drugs.
-Dr. Hanscom describes his personal journey and recovery from panic, pain, and other disabling somatic symptoms when he read Dr. Burns' book, [Feeling Good: The New Mood Therapy](https://amzn.to/2z7FZPS), and began doing the written triple column technique to challenge his own negative thoughts and overcome his own feelings of depression, panic, hopelessness, and anger.
-He also began to study alarming research reports indicating that many of the surgical procedures were no more effective than placebos; and even worse, he could see that back surgery often had damaging and even disabling and horrific effects on patients. And he also discovered that most of the patients seeking surgery for back pain could be helped simply through talk therapy and support, by focusing on the problems in their lives, rather than simply focusing on pain and pills.
-Dr. Burns supports Dr. Hanscom's premise, that even physical pain can have powerful psychological causes and cures. Dr. Burns briefly summarizes his own research on hospitalized inpatients with significant emotional problems as well as chronic pain. He wanted to answer the question of why physical pain and negative feelings so often go hand-in-hand.
+Mon, 11 Nov 2019 09:00:00 +0000
 
-To find out, he studied changes in negative feelings, like depression, anxiety and anger, as well as the intensity of pain, in more than 100 patients attending a 90 minute cognitive therapy group. He saw that there were often massive shifts in negative feelings, like depression, anxiety, and anger, as well as the severity of physical pain, during the groups.
+> In today's podcast, David and Rhonda interview Dr. David Hanscom, a renowned and controversial spine surgeon who gave up a large and lucrative surgical practice in favor of helping and educating people struggling with back pain, directing them on the path to recovery **without** surgery or drugs.
 
-He analyzed the data with sophisticated statistical modeling techniques to evaluate two competing theories about why pain and negative feelings go hand-in-hand.
+> Dr. Hanscom describes his personal journey and recovery from panic, pain, and other disabling somatic symptoms when he read Dr. Burns' book, [Feeling Good: The New Mood Therapy](https://amzn.to/2z7FZPS), and began doing the written triple column technique to challenge his own negative thoughts and overcome his own feelings of depression, panic, hopelessness, and anger.
 
+> He also began to study alarming research reports indicating that many of the surgical procedures were no more effective than placebos; and even worse, he could see that back surgery often had damaging and even disabling and horrific effects on patients. 
+
+> And he also discovered that most of the patients seeking surgery for back pain could be helped simply through talk therapy and support, by focusing on the problems in their lives, rather than simply focusing on pain and pills.
+
+> He analyzed the data with sophisticated statistical modeling techniques to evaluate two competing theories about why pain and negative feelings go hand-in-hand.
 
 * Physical pain could cause negative feelings, like depression, anxiety and anger. This seems plausible, since physical pain is so debilitating, and just plain awful.
 * Negative feelings could have a causal effect on physical pain.
-The analyses indicated that there were causal effects in both directions, but the most powerful effect, by far, was the effect of negative emotions on physical pain. In fact, the analyses indicated that, on average, half of the physical pain these patients were experiencing, on average, was the direct result of their negative emotions.
 
-This means that if you're in pain, and you're emotionally upset, which would be totally understandable, that a great deal of the pain you are feeling is the result of a magnification of the pain by your negative emotions.
+> The analyses indicated that there were causal effects in both directions, but the most powerful effect, by far, was the effect of negative emotions on physical pain. In fact, the analyses indicated that, on average, half of the physical pain these patients were experiencing, on average, was the direct result of their negative emotions.
 
-There is a positive implication of this finding that supports what Dr. Hansom is saying--namely, that if you are in pain, including chronic pain, and you are willing to overcome your negative feelings and deal with the problems in your life, there is a good chance that your pain will improve substantially. Some people, as David saw in the groups, will experience a total elimination of pain--something he often observed within the group.
+> There is a positive implication of this finding that supports what Dr. Hansom is saying--namely, that if you are in pain, including chronic pain, and you are willing to overcome your negative feelings and deal with the problems in your life, there is a good chance that your pain will improve substantially.
 
-It is also possible that you will experience a reduction of your pain, but not a complete elimination. And it is possible that your pain will not improve when your negative feelings disappear--but at least you won't have to struggle with pain and depression!
+> It is also possible that you will experience a reduction of your pain, but not a complete elimination. And it is possible that your pain will not improve when your negative feelings disappear--but at least you won't have to struggle with pain and depression!
 
-So he has now devoted his life to making people, as well as his surgical colleagues, aware of the realities vs. the myths of back surgery. To learn more, visit his [Back in Control](http://www.BackInControl.com">website</a>, or pick up a copy of his terrific book, <a href= "https://backincontrol.com/book/back-in-control-a-spine-surgeons-roadmap-out-of-chronic-pain/). The book includes a section on your personal roadmap out of pain.
-
-Rhonda and I are incredibly grateful to Dr. Hanscom for this illuminating, challenging, and profoundly personal interview. We hope you enjoy it! And if you've been struggling with any kind of chronic or debilitating pain, we hope you will find some hope, as well as a drug-free path to recovery!
-
-David D. Burns, M.D. & Rhonda Barovsky, Psy.D.
-
-
-
-Mon, 11 Nov 2019 09:00:00 +0000
+* [Back in Control](http://www.BackInControl.com)
+* [Back in Control: A Surgeon’s Roadmap Out of Chronic Pain](https://backincontrol.com/book/back-in-control-a-spine-surgeons-roadmap-out-of-chronic-pain/)
 
 ### [167: Feeling Great: Professor Mark Noble on TEAM-CBT and the Brain](http://feelinggood.libsyn.com/167-feeling-great-professor-mark-noble-on-team-cbt-and-the-brain)
 
-<img class="size-full wp-image-14487 aligncenter" src= "https://feelinggood.com/wp-content/uploads/2019/10/Mark-Noble-002-3108933267-1570128112316.jpg" alt="Mark Noble (002)" width="320" height="240" />
-Professor Mark Noble was our special guest on the one hundredth **Feeling Good Podcast.** In that podcast, he described the effects of TEAM-CBT on the human brain. Many listeners were enthralled by Dr. Noble's revolutionary ideas!
-Today, Dr. Noble returns to discuss his illuminating ideas, and prevents an overview of his chapter entitled, "TEAM CBT and the Art of Micro-Neurosurgery: A Brain User's Guide to Feeling Great," which will appear in David's new book, **Feeling Great**, which will be released by PESI in 2020.
-Rhonda begins the podcast by asking how Dr. Noble met Dr. Burns. What brought the two of you together?
-Dr. Noble explains that he read about David's work on drug-free treatments for depression in the October, 2013 issue of Stanford Magazine entitled [Mind Over Misery,](https://stanfordmag.org/contents/mind-over-misery) This article became the most-read article in the history of the Stanford Magazine.  Dr. Noble was particularly interested in drug-free treatments for depression because of some alarming research emerging in his laboratory on the central nervous system impact of some popular antidepressants on lysosomes in the brain.
-So, Dr. Noble made a trip to California so he could visit David's Tuesday training group at Stanford and participate in one of David's famous Sunday hikes. This was so much fun, and so intellectually rewarding, that he become an irregular regular at the Tuesday groups and Sunday hikes! Since that time, there have been many Sunday hikes and many Tuesday groups in the emerging friendship and professional collaboration between David and Dr. Noble.
-
-David describes some of the resistance he runs into from mental health professionals who cannot believe that the rapid recoveries David sees in TEAM-CBT can be real. Most therapists were trained to believe that depression develops slowly, over many years, and that effective treatment must also be very slow, often requiring many years, or even more than a decade of weekly sessions. But Dr. Noble argues that the amazingly rapid changes David routinely sees in TEAM-CBT are actually highly consistent with the latest neuroscience understanding of how the human brain works.
-
-<img class="alignnone size-full wp-image-6613" src= "https://feelinggood.com/wp-content/uploads/2017/05/img_2486.jpg" alt="IMG_2486" width="2016" height="1511" />
-
-David and Dr. Noble on a Sunday hike
-
-In fact, Dr. Noble presents the amazing idea that if you had to invent a form of psychotherapy that was specifically developed to capitalize on how the brain works, you would come up with something very much like TEAM-CBT.
-
-Dr. Noble discusses neuroscience in simple, everyday terms that anyone can understand. Even me (david)! Dr. Noble teaches in a kind of clear, accessible way of communicating that I (david) admire greatly. I have seen this in all of the teachers that I've admired the most in college, medical school and beyond.
-
-Dr. Noble explains that if you want to change the way you think, feel, and behave, you have to change certain specific networks in your brain. That's because networks of nerves are the biological equivalents of thoughts.
-
-But how do you do that? How can you change the networks in your brain that cause you to feel depressed, anxious, and inadequate? It's through two basic concepts of neuroscience called FTWT and WTFT! In Dr. Burns' new book, Dr. Noble writes:
-
-"One of the most famous concepts in the science of learning is called, "What **F**ires **T**ogether **W**ires **T**ogether" (**FTWT**). Nerve cells that frequently interact with each other become functionally connected, and the more they fire together, the stronger the connections become. This is how new networks are formed and how existing networks become stronger.
-
-"In addition, nerve cells that are **W**ired **T**ogether tend to **F**ire **T**ogether (**WTFT**). WTFT. This idea explains why once you've learned something it gets easier to repeat it every time you do it."
-
-Dr. Noble also views TEAM-CBT as a kind of micro-neurosurgery, because you replace highly selected negative brain circuits that send distorted signals, such as "I'm not good enough," or "I'll never recover," with new circuits that are far more accurate and positive.
-
-Dr. Noble also explains why Dr. Burns' concept of "Fractal Psychotherapy" is so complimentary to our understanding of the human brain, as are the other components of TEAM-CBT, including T = Testing, E = Empathy, A = Assessment of Resistance, and M = Methods.
-
- 
-
-<img class="alignnone size-full wp-image-6608" src= "https://feelinggood.com/wp-content/uploads/2017/05/img_2401-411919755-1570127154114.jpg" alt="img_2401.jpg" width="1508" height="1131" />
-
-David and Dr. Noble following a Sunday hike, just before the dim sum feast with the hiking group at the Joy Luck Palace in Cupertino, California, Notice the slightly bulging but happy stomachs from both doctors!
-
-Dr. Noble also explains why conventional therapy--where the patient comes in week after week to vent about his / her problems--may actually make the patient worse. This is because the neurons that Fire Together every week, actually Wire Together. So, in simple neuroscience terms, conventional therapy may actually lead patients in the wrong direction, by strengthening the negative circuits in the brain.
-
-You will love this down-to-earth discussion of TEAM-CBT and the human brain!
-
-David D. Burns, M.D. & Rhonda Barovsky, Psy.D.
-
-
-
 Mon, 18 Nov 2019 09:00:00 +0000
+
+![](https://feelinggood.com/wp-content/uploads/2019/10/Mark-Noble-002-3108933267-1570128112316.jpg)
+
+> Today, Dr. Noble returns to discuss his illuminating ideas, and prevents an overview of his chapter entitled, "TEAM CBT and the Art of Micro-Neurosurgery: A Brain User's Guide to Feeling Great," which will appear in David's new book, **Feeling Great**, which will be released by PESI in 2020.
+
+> Dr. Noble explains that he read about David's work on drug-free treatments for depression in the October, 2013 issue of Stanford Magazine entitled [Mind Over Misery,](https://stanfordmag.org/contents/mind-over-misery) This article became the most-read article in the history of the Stanford Magazine.  Dr. Noble was particularly interested in drug-free treatments for depression because of some alarming research emerging in his laboratory on the central nervous system impact of some popular antidepressants on lysosomes in the brain.
+
+![](https://feelinggood.com/wp-content/uploads/2017/05/img_2486.jpg)
+
+> In fact, Dr. Noble presents the amazing idea that if you had to invent a form of psychotherapy that was specifically developed to capitalize on how the brain works, you would come up with something very much like TEAM-CBT.
+
+> Dr. Noble explains that if you want to change the way you think, feel, and behave, you have to change certain specific networks in your brain. That's because networks of nerves are the biological equivalents of thoughts.
+
+> "One of the most famous concepts in the science of learning is called, "What **F**ires **T**ogether **W**ires **T**ogether" (**FTWT**). Nerve cells that frequently interact with each other become functionally connected, and the more they fire together, the stronger the connections become. This is how new networks are formed and how existing networks become stronger.
+
+> "In addition, nerve cells that are **W**ired **T**ogether tend to **F**ire **T**ogether (**WTFT**). WTFT. This idea explains why once you've learned something it gets easier to repeat it every time you do it."
+
+> Dr. Noble also explains why Dr. Burns' concept of "Fractal Psychotherapy" is so complimentary to our understanding of the human brain, as are the other components of TEAM-CBT, including T = Testing, E = Empathy, A = Assessment of Resistance, and M = Methods.
+
+![](https://feelinggood.com/wp-content/uploads/2017/05/img_2401-411919755-1570127154114.jpg)
+
+> Dr. Noble also explains why conventional therapy--where the patient comes in week after week to vent about his / her problems--may actually make the patient worse. This is because the neurons that Fire Together every week, actually Wire Together. So, in simple neuroscience terms, conventional therapy may actually lead patients in the wrong direction, by strengthening the negative circuits in the brain.
 
 ### [168: Ask David: The Blushing Cure, How to Heal a Broken Heart, Treating Anorexia, and more!](http://feelinggood.libsyn.com/168-ask-david-the-blushing-cure-how-to-heal-a-broken-heart-treating-anorexia-and-more)
 
-Happy Thanksgiving if you live in the United States! This is my favorite holiday, because it means just hanging out with the people you love, eating some wonderful food together, and doing simple things like a family hike, without the commercialism and "push" of some of the other holidays. I wish the very best to you and yours, too!
-Today, Rhonda could not join us due to Yom Kippur, the highest Jewish holy day. So we will record three podcasts with my wonderful neighbor, Dave Fribush, as host. In addition, we are joined by Michael Simpson, who flew out from New York to attend my Empathy workshop two days ago. He will also join the Tuesday group at Stanford tonight. Michael is doing a massive upgrade / fast lift of my website, www.feelinggood.com, which will likely be published by the time you read this. Let us know what you think about the new "look."
-Dave Fribush, Michael and I answer many thought-provoking questions submitted by listeners like you!
 **1. How can I overcome my fear of blushing?**
-Hi David,
-Hopefully this reaches you well. I am dealing with Erythrophobia (the fear of blushing) and have been having issues with going out with friends, being in public, in work meetings, etc. The weird part is that I don't even get red, but the visualization in my head is so vivid sometimes (Kool-Aid man) that I believe it.
-Sometimes, if I think about it long enough (like an internal panic attack for 20+min), I get kind of red. . . . Currently, I am trying to just break this habit and I have been reading your book **When Panic Attacks** and it has been pretty good at helping me.
-[<img class= " wp-image-6 aligncenter" src= "https://feelinggood.com/wp-content/uploads/2013/07/whenpanicattacks.jpg" alt="whenpanicattacks" width="101" height="151" />](https://amzn.to/2H91zYI)
-I have been facing my fears and going out into public and hanging out with friends; I'm kind of anxious on the inside of getting red all of sudden, which puts me on edge. I look in the mirror and see that I am not red, but it’s been hard to train my brain to believe it. I started reading your book five days ago and it has helped a lot already. Since then, I have been able to accept
-I don't mind being occasionally red or nervous and I'm fairly confident, but I struggle to accept the idea of being perpetually red? Part of me wants to accept the idea that "Eff-it! If I'm red, I'm red! That's who I am,” but another part of me knows that it's not true; occasionally I might blush but it’s not the norm.
-Please let me know if you have any advice. I think this might be a great podcast topic because I know a lot of people with Rosacea deal with anxiety and I'm sure that would help a lot of others.
 
-Best, Alex
-
-Hi Alex,
-
-I have a awesome [podcast on the fear of blushing!](https://feelinggood.com/2018/05/14/088-role-play-techniques-feared-fantasy-revisited/)) You might find it helpful (Podcast #88, published on May 14, 2018.)
-
-I cannot do therapy through this medium, so this is just general teaching, but exposure / self-disclosure in one method you could use. You could tell 5 to 10 strangers every day something like this:
-
-“Could I speak to you for a moment? I’ve had the fear of blushing almost all of my life, and I’ve been hiding it from everybody out of shame. But today, I’ve decided to stop hiding and being ashamed, so I’ve decided to tell people, and that's why I'm telling you.”
-
-You’ll find tons of additional ideas in the podcast and in one of my books, like the one you’re reading, **[The Feeling Good Handbook](https://amzn.to/2H91zYI">When Panic Attacks</a>**, as well as **<a href="https://amzn.to/2Hb4NLs)**.
-
-Actually, blushing is NEVER a problem. The only problem is the shame. Without the shame, the blushing, like shyness, can be an asset, making you more human and more appealing.
-
-Also, on my Sunday hike yesterday, we were joined by a young Stanford dermatologist who showed us some photos and videos of a new laser treatment for rosacea, which is similar to blushing. Apparently, the treatment is quite effective.
-
-Thanks, David
+> I have a awesome [podcast on the fear of blushing!](https://feelinggood.com/2018/05/14/088-role-play-techniques-feared-fantasy-revisited/)) You might find it helpful (Podcast #88, published on May 14, 2018.)
 
 **2. How can you get over a broken heart?**
 
-Hi David,
+> How can I help him move forward? Those good memories are haunting him?
 
-First of all, I would like to thank you from my bottom of my heart for the wonderful jobs you are doing. I have a question regarding aftermath of divorce and searched [feelinggood.com](http://feelinggood.com) for any post but I couldn't find any. My best friend is going through divorce process and he cannot forget the good memories he had with this wife. He still loves her so much and would like to continue their relationship but she's not interested in that. They have been separated for 4 years and he tried his best to bring her back.
+> Resources for your friend might include the book I wrote on this topic, which is called [Intimate Connections](https://amzn.to/2H91zYI). One of the themes is that rejection could never upset a human being—only distorted thoughts about being rejected. 
 
-How can I help him move forward? Those good memories are haunting him?
+[![](https://feelinggood.com/wp-content/uploads/2013/07/intimateconnections.gif)](https://amzn.to/2Z6RDFv)
 
-Thanks,
-
-Didi
-
-Hi Didi,
-
-Thanks for your terrific question, as most of us were rejected by someone we loved at some point in our lives.
-
-You’re in luck! We just recorded a podcast on how to help a friend or loved one who’s hurting, and by the time you read this, it will have been published. It's Podcast #164 on “How to HELP, and how NOT to Help!” It was published on October 28, 2019. You can find the link on [the list of all of the published podcasts](https://feelinggood.com/list-of-feeling-good-podcasts/) on my website. I would **definitely** listen before trying to "help" your friend!
-
-Resources for your friend might include the book I wrote on this topic, which is called [Intimate Connections](https://amzn.to/2H91zYI). One of the themes is that rejection could never upset a human being—only distorted thoughts about being rejected. This book can be helpful to the many people who have been divorced, or who have broken up with someone they loved, and are having trouble getting back into the dating game effectively, as well as the many people who are having trouble getting into the dating game for the first time.
-
-[<img class= " size-full wp-image-60 aligncenter" src= "https://feelinggood.com/wp-content/uploads/2013/07/intimateconnections.gif" alt="intimateconnections" width="100" height="168" />](https://amzn.to/2Z6RDFv)
-
-Another great resource for him would be the chapter on the Love Addiction in **[Feeling Good: The New Mood Therapy](https://amzn.to/2z7FZPS)**. It describes a woman who had just been rejected by her husband, who was having an affair with his secretary, and she was telling herself that she couldn’t be happy without his love. The story had an amazing outcome, and might be very helpful for your friend.
-
-[<img class= " wp-image-14080 aligncenter" src= "https://feelinggood.com/wp-content/uploads/2019/08/download-002.jpeg" alt="download (002)" width="95" height="156" />](https://amzn.to/2z7FZPS)
-
-Of course, motivation is incredibly important. Your friend might not want to be “cured,” so to speak, since his depression and thoughts about his Ex keep the relationship alive in his mind, and also give him an excuse to avoid dating and developing new relationships, which can be anxiety-provoking and effortful for just about anybody!
-
-David
+> Another great resource for him would be the chapter on the Love Addiction in **[Feeling Good: The New Mood Therapy](https://amzn.to/2z7FZPS)**. It describes a woman who had just been rejected by her husband, who was having an affair with his secretary, and she was telling herself that she couldn’t be happy without his love. The story had an amazing outcome, and might be very helpful for your friend.
 
 **3. How would you treat someone with anorexia nervosa?**
 
-This question was submitted by our friend, Professor Mark Noble, on behalf of one of his colleagues at the University of Rochester.
+> I also describe the “Coercive Therapy” also called [Family Therapy for anorexia](http://www.maudsleyparents.org/whatismaudsley.html),  developed at the Maudsley in London, and we talk about how the same principle—getting the parents to work together on the same team, with firmness, intense mutual support, and compassionate insistence—works for almost any problem children are having.
 
-I, David, explain what anorexia is, and describe my experience with an anorexia patient I treated in Philadelphia when she was discharged from the inpatient unit. I emphasize the need for the TEAM-CBT technique called the Gentle Ultimatum, since the patient didn't want o maintain her weight at a safe level, and just wanted to talk talk talk during sessions without doing any psychotherapy homework. 
-
-I also describe the “Coercive Therapy” also called F[amily Therapy for anorexi](http://www.maudsleyparents.org/whatismaudsley.html)a,  developed at the Maudsley in London, and we talk about how the same principle—getting the parents to work together on the same team, with firmness, intense mutual support, and compassionate insistence—works for almost any problem children are having.
-
-However, this requires the parents to support one another, and work together as a strong and loving team, and many parents who are in conflict will find it difficult to do this, since the urge to argue and fight can be so powerful. Then the parents sacrifice the well-being and happiness of their children in the name of ongoing war (blame, fighting, sticking up for “truth,” and so forth).
-
-Dave F. and Michael Simpson ask why this approach of getting parents to work together, can be so incredibly powerful and helpful to children.
-
-David
-
-
+> However, this requires the parents to support one another, and work together as a strong and loving team, and many parents who are in conflict will find it difficult to do this, since the urge to argue and fight can be so powerful. Then the parents sacrifice the well-being and happiness of their children in the name of ongoing war (blame, fighting, sticking up for “truth,” and so forth).
 
 Mon, 25 Nov 2019 09:00:00 +0000
 
-### [169: More on Social Anxiety-The Case for Vulnerability!](http://feelinggood.libsyn.com/169-more-on-social-anxiety-the-case-for-vulnerability-0)
-
-Today's podcast features Michael Simpson, a friend and colleague of Dr Burns, who describes his personal battle with social anxiety. Dave Fribush will again be our host, since Rhonda is celebrating the important religious holiday of Yom Kippur with her family.
-Michael first became acquainted with David when he read David’s book, **When Panic Attacks**, which he says was SO GOOD! But when he went to David’s website, [www.feelinggood.com](http://www.feelinggood.com), he was shocked to see so much terrific free content for people, but the website was not well-presented. In fact, it was pretty sucky!
-[<img class= " wp-image-6 aligncenter" src= "https://feelinggood.com/wp-content/uploads/2013/07/whenpanicattacks.jpg" alt="whenpanicattacks" width="136" height="205" />](https://amzn.to/2H91zYI)
-So, Michael sent David a brief video, pointing out all the problems, and offered to redo the website in exchange for some help with his social anxiety—and the relationship took off from there!
-<span style="font-weight: 400;">Michael describes his own experiences with social anxiety, which amounts to slight to moderate nervousness, tension and dis-ease during interactions with people. There is no apparent pattern to his triggers: he can become anxious (or not) around friends, strangers, men, women he is attracted to, and women he is not attracted to. He experiences the anxiety physically: butterflies in his stomach, tension around his face and a general tightness in his body. He is usually unaware of his negative thoughts, which involve fears of looking weak, being judged by others because of his anxiety, and being unable to connect with others while he is feeling anxious. He usually tries to hide all of these fears.</span>
-
-<span style="font-weight: 400;">In addition, his social anxiety does not appear to inhibit him — he is a tall, handsome, articulate man, and when he confides his social anxiety to others, they are usually extremely surprised that someone who outwardly appears so confident could possibly be struggling with social anxiety. </span>
-
-<span style="font-weight: 400;">Michael describes one of his first “homework assignments” from Dr. Burns, who suggested that instead of hiding his anxiety, he should approach attractive women he encounters on the street and simply tell them that sometimes he becomes anxious when speaking to attractive women. The purpose of the exercise was to confront his fear (Exposure) and do a real-world experiment to find out if his fears of being judged are realistic. </span>
-
-<span style="font-weight: 400;">Opening up about his anxiety was very challenging for Michael, to say the least, given that he had spent most of his life trying to hide it. He describes walking around Times Square in New York City, procrastinating, and trying to muster up the courage to follow through on his assignment. </span>
-
-So, he finally approached a woman from Brazil whom he found exceptionally attractive. He kind of had to chase after her to stop her to tell her. We can call her Adrianna. Adrianna did not judge or reject Michael, and the two of them seemed hit it off tremendously. And they talked and hung out together every day.
-
-Michael described their relationship as one of the deepest and most fulfilling relationships he’d ever experienced. He was amazed by Adrianna’s warmth, compassion, and openness, and appreciated the respect and love she conveyed to everyone she met. Michael also describes visiting her and spending a week together in Brazil after she returned home.
-
-One of the take-home messages for Michael was that vulnerability, rather than trying to be cool, or trying to impress people that you have it all together, is the real key to intimacy and joy in our relationships with others.
-
-Dave Fribush and David Burns feel very indebted to Michael for his awesome work on today’s podcast. Michael hopes his experiences will be helpful to any of you who have also struggled at times with social anxiety.
-
-My new website makeover will probably be launched by the time you read this, so let us know what you think! It's will be at the same address: www.feelinggood.com.
-
-If you are struggling with social anxiety, you might also enjoy my book, **Intimate Connections**. It's now a bit dated, but the ideas can still be tremendously helpful. Here's an unsolicited endorsement I recently received from a young professional woman:
-
-
-"I’d like to share a story about a book I started reading on my trip to Asheville this past weekend.  On the plane, both tears and uncontrollable laughter simultaneously streamed from my face while reading the **Intimate Connections** book.  No more peanut butter and jelly sandwiches telling myself what a loser I am!" ZR
-
-[<img class= " size-full wp-image-60 aligncenter" src= "https://feelinggood.com/wp-content/uploads/2013/07/intimateconnections.gif" alt="intimateconnections" width="100" height="168" />](https://amzn.to/2Z6RDFv)
-
-David
-
-
-
-Mon, 02 Dec 2019 20:00:00 +0000
-
 ### [170: Ask David: Helping Abused Women, and the Case Against Wellness!](http://feelinggood.libsyn.com/170-ask-david-helping-abused-women-and-the-case-against-wellness)
 
-Today, Rhonda could not join us due to the religious holidays, so we have recorded several podcasts with my wonderful neighbor, Dave Fribush, as host. In addition, we are joined by Michael Simpson, a friend and colleague from New York.
-Dave, Michael and I answer two thought-provoking questions!
 **1. Working with Abused Women**
-Hi David (and Rhonda!),
-I want to start out by stating how much I love your podcast. It has helped me understand myself, and, in turn, has made me a much more effective counselor.
-I'm a drug and alcohol counselor, working here in Los Angeles. I work primarily with women from 18 - 25 years old who have aged out of the foster care system. They are an endearing group of women, as I know you are aware (I've heard you speak of working with this population), and they just want to feel loved and worthy. However, their deep-seated beliefs of being unworthy of good things happening in their lives prevents them from attaining their goals of getting jobs, getting their children back, and gaining housing.
-These deep-seated beliefs are based on mistreatment by their families of origin, and their subsequent experiences in the social services system. Most were sexually abused or physically abused as children, taken out of their homes, then bounced around from one Foster Care family to the next.
-Despite my best efforts, the majority of these women go back out to the streets just shy of completing our 6- to 12-month treatment program. Once on the streets they return to drug dealing, prostitution, and crime. After which, if they are lucky, they get picked up and incarcerated. Many die on the streets of drug overdoses or murder.
-I'm using all of the tools I can to help them change their core beliefs, but it is challenging to say the least!
+  > I'm a drug and alcohol counselor, working here in Los Angeles. I work primarily with women from 18 - 25 years old who have aged out of the foster care system. They are an endearing group of women, as I know you are aware (I've heard you speak of working with this population), and they just want to feel loved and worthy. However, their deep-seated beliefs of being unworthy of good things happening in their lives prevents them from attaining their goals of getting jobs, getting their children back, and gaining housing.
+  
+  > These deep-seated beliefs are based on mistreatment by their families of origin, and their subsequent experiences in the social services system. Most were sexually abused or physically abused as children, taken out of their homes, then bounced around from one Foster Care family to the next.
+  
+  > Despite my best efforts, the majority of these women go back out to the streets just shy of completing our 6- to 12-month treatment program. Once on the streets they return to drug dealing, prostitution, and crime. After which, if they are lucky, they get picked up and incarcerated. Many die on the streets of drug overdoses or murder.
+
 My question to you is—is there a book coming out which goes into depth about T.E.A.M. therapy? I need to become the most effective counselor I can in order to help these women recover and lead normal lives.
-Thank you so much for your help! Keep up the good work. You are definitely saving lives!!
 
-Pennie
+> Thank you so much for your question. I did work with this population at the Presbyterian / University of Pennsylvania Hospital in Philadelphia, and found the patients to be incredibly rewarding and hungry for help, love, and connection, as you have said. I’m sure it is heart-breaking for you to see so many fall short, continue to struggle, and even die on the streets.
 
-Hi Pennie,
+> I found this population to be particularly easy and rewarding to work with because they seemed so grateful to be getting any kind of help at all. Many of our patients were homeless, and about a quarter of them could not read or write. We gave them more than eight hours of cognitive group therapy every day in a residential treatment setting, so they got 40 to 50 hours of therapy per week. The program was very inexpensive to run, and was more or less free to the participants, paid for by some type of medical assistance insurance, as well as by our hospital. Most patients showed dramatic changes within three or four days. The average length of stay was something like a week or ten days or so.
 
-Thank you so much for your question. I did work with this population at the Presbyterian / University of Pennsylvania Hospital in Philadelphia, and found the patients to be incredibly rewarding and hungry for help, love, and connection, as you have said. I’m sure it is heart-breaking for you to see so many fall short, continue to struggle, and even die on the streets.
+> In today's podcast, I describe a patient in one of our groups, a woman who was severely depressed. She thought of herself as "weak" and "a bad mother." She recovered from her depression in just 20 minutes or so when I used a TEAM-CBT method called "The Paradoxical Double Standard Technique.
 
-I found this population to be particularly easy and rewarding to work with because they seemed so grateful to be getting any kind of help at all. Many of our patients were homeless, and about a quarter of them could not read or write. We gave them more than eight hours of cognitive group therapy every day in a residential treatment setting, so they got 40 to 50 hours of therapy per week. The program was very inexpensive to run, and was more or less free to the participants, paid for by some type of medical assistance insurance, as well as by our hospital. Most patients showed dramatic changes within three or four days. The average length of stay was something like a week or ten days or so.
+[**Ten Days to Self-Esteem**](https://amzn.to/2zftQsB)
 
-In today's podcast, I describe a patient in one of our groups, a woman who was severely depressed. She thought of herself as "weak" and "a bad mother." She recovered from her depression in just 20 minutes or so when I used a TEAM-CBT method called "The Paradoxical Double Standard Technique.
+> We gave a copy to every patient entering our program, and found that really boosted our outcomes. The hospital purchased them in quantities of 50 or more, and got the wholesale price, which made the books cheaper than having to copy the materials for the patients.
 
-My book, **Ten Days to Self-Esteem, **is the program we used at my hospital in Philadelphia when working with this population. It is a simplified version of CBT, and it is a ten-step program that can be administered individually or in groups (which I prefer.) It is written using simple words for individuals with little education.
+[**Ten Days to Self-Esteem, The Leader's Manual**](https://amzn.to/2YX2SoL)
 
-[<img class= "alignnone size-full wp-image-51" src= "https://feelinggood.com/wp-content/uploads/2013/07/tendays.gif" alt="tendays" width="100" height="133" />](https://amzn.to/2zftQsB)
-
-We gave a copy to every patient entering our program, and found that really boosted our outcomes. The hospital purchased them in quantities of 50 or more, and got the wholesale price, which made the books cheaper than having to copy the materials for the patients.
-
-There's also a companion **Ten Days to Self-Esteem**, The Leader's Manual**, that you can get as an eBook. It shows the group leaders how to set the groups up and what to do at each of the ten group sessions.
-
-[<img class= "alignnone size-full wp-image-54" src= "https://feelinggood.com/wp-content/uploads/2013/07/tendays-leader.gif" alt="tendays-leader" width="100" height="130" />](https://amzn.to/2YX2SoL)
-
-There are many additional resources for you, if you'd like to learn more about CBT, as well as TEAM-CBT. First, my new book,  **Feeling Great,** is now at the publisher, PESI, and should be coming out in 2020. I'll update you as more details become available. But yes, it does have all the new TEAM-CBT stuff in it. It is intended for therapists as well as the general public, and features lots of written exercises while you read, so you can really master the many new methods and concepts.
-
-My psychotherapy eBook, [T**ools, Not Schools, of Therapy**,](http://aaa-ebook-order-form-for-website-v-1.pdf) is for therapists, and we use it in all of our TEAM-CBT training programs. It is an interactive book that shows you how to do TEAM-CBT in a step-by-step way. this book also features many challenging interactive written exercises to complete as you read.
-
-You might enjoy some of my [the Feeling Good Institute](https://feelinggood.com/workshops/">in person workshops</a>, as well as the many weekly online TEAM-CBT training programs at <a href="http://www.feelinggoodinstitute.com/).  My one day workshops with Dr. Jill Levitt are really well received, and you can join online from anywhere in the world. My yearly intensives in the US and Canada are usually pretty awesome as well.
-
-I hope this information is helpful, and Iwish you the very best in the important and compassionate work you are doing with this incredibly deserving group of women who are suffering so greatly!
+My psychotherapy eBook, [**Tools, Not Schools, of Therapy**,](http://aaa-ebook-order-form-for-website-v-1.pdf) is for therapists, and we use it in all of our TEAM-CBT training programs. It is an interactive book that shows you how to do TEAM-CBT in a step-by-step way. this book also features many challenging interactive written exercises to complete as you read.
 
 **2. Why don’t you advocate “Wellness” or “Holistic” Approaches?**
 
-A therapist named Georgina recently emailed me and was pretty excited about her clinical work which was dedicated to “Wellness” and to “Holistic” treatment methods. I mentioned in an email that I am “intensely anti-wellness and anti-holistic.”
+> A therapist named Georgina recently emailed me and was pretty excited about her clinical work which was dedicated to “Wellness” and to “Holistic” treatment methods. I mentioned in an email that I am “intensely anti-wellness and anti-holistic.”
 
-She sounded a bit shocked and added: “I'm one of those clinicians who provide consults to other clinicians on Pilates and yoga in integrative psychiatry.”
+> The quick answer to your question, which you can also hear in the podcast on “fractal psychotherapy,” ([https://feelinggood.com/2019/03/04/130-whats-fractal-psychotherapy/](https://feelinggood.com/2019/03/04/130-whats-fractal-psychotherapy/)) is that I focus narrowly on one specific moment when the patient was upset, and if it is an individual mood problem, like depression or anxiety, I ask the patient to record his or her negative thoughts and feelings at that specific moment on the Daily Mood Log. This activates just a few brain networks, out of the billions or trillions of networks in the brain, and we selectively modify those networks using techniques specifically chosen for this individual patient. There are no no-specific interventions.
 
-Hi Georgina,
+> Although I do not include any ”wellness” or “holistic” tools or concepts in my treatment plans, I have nothing against aerobic exercise, yoga (my daughter totally loves it!), meditation (my host, Rhonda, is a strong advocate), or a healthy diet, or anything else someone may find fun, exciting or helpful. It’s just that I’m trained in, and have developed, highly specific, super-fast acting treatments.
 
-Thanks for your thoughtful emails! I know my statement was “politically incorrect” in an era that emphasizes lots of non-specific treatment methods like meditation, healthy dieting, daily exercise, yoga, and so forth.
+> I believe that “non-specific techniques” have only a placebo effect on mood, although the placebo effect itself can be quite strong and potentially very helpful. In addition, I believe that non-specific techniques can ONLY change mood if you change the way you think.
 
-The quick answer to your question, which you can also hear in the podcast on “fractal psychotherapy,” ([https://feelinggood.com/2019/03/04/130-whats-fractal-psychotherapy/](https://feelinggood.com/2019/03/04/130-whats-fractal-psychotherapy/)) is that I focus narrowly on one specific moment when the patient was upset, and if it is an individual mood problem, like depression or anxiety, I ask the patient to record his or her negative thoughts and feelings at that specific moment on the Daily Mood Log. This activates just a few brain networks, out of the billions or trillions of networks in the brain, and we selectively modify those networks using techniques specifically chosen for this individual patient. There are no no-specific interventions.
+> So, if you jog, or eat a healthy diet, or meditate daily, and tell yourself, “Wow, I’m really living a healthy life,” you will feel good if you believe this thought. The jogging or food you eat will not, itself, cure your depression, or panic attacks, or fix your broken marriage, or help you recover from OCD, or PTSD, and so forth.
 
-The goal is rapid complete recovery followed by highly specific Relapse Prevention Training, so the patient will know exactly what to do the next time s/he falls into the black hole of depression, hopelessness, and despair. Essentially, I give the patient a little ladder that she or he can use the next time the Negative Thoughts return.
-
-No one can feel happy all the time, but nearly all people can learn to limit those bumps in the road that we all encounter from time to time.
-
-It sounds like the work you do for patients with Parkinson’s Disease is terrific, and desperately needed. My father in law died of Parkinson’s Disease several years ago, and we saw and experienced personally what a devastating and tragic disease it is.
-
-Although I do not include any ”wellness” or “holistic” tools or concepts in my treatment plans, I have nothing against aerobic exercise, yoga (my daughter totally loves it!), meditation (my host, Rhonda, is a strong advocate), or a healthy diet, or anything else someone may find fun, exciting or helpful. It’s just that I’m trained in, and have developed, highly specific, super-fast acting treatments.
-
-I believe that “non-specific techniques” have only a placebo effect on mood, although the placebo effect itself can be quite strong and potentially very helpful. In addition, I believe that non-specific techniques can ONLY change mood if you change the way you think.
-
-So, if you jog, or eat a healthy diet, or meditate daily, and tell yourself, “Wow, I’m really living a healthy life,” you will feel good if you believe this thought. The jogging or food you eat will not, itself, cure your depression, or panic attacks, or fix your broken marriage, or help you recover from OCD, or PTSD, and so forth.
-
-These conditions ARE highly treatable, however, using specific, fast-acting techniques that are individualized to you. We call this treatment TEAM-CBT. Again, I’m sure that many people will HATE what I just said, but I guess we will need some pretty refined research—research that’s never been done—to find out! The research that’s out there definitely **cannot** answer this question.
-
-All I offer is a quick cure for specific problems. I’m not offering “everything” to “everybody.” I am aware, too, that my answer may be cheered by some and may be angrily booed by others. I like to speak from the heart, and from my experience, but I’m often wrong, and sometimes way off the mark, so no problem if you disagree or think I’m nuts!
-
-You might also find our [second](https://feelinggood.com/2019/02/25/129-flexing-the-mindfulness-meditation-muscle/"> first</a> and <a href= "https://feelinggood.com/2019/04/15/137-mindfulness-part-2-muscle-or-myth/) podcasts on Mindfulness Meditation to be useful or interesting.
+You might also find our [first](https://feelinggood.com/2019/02/25/129-flexing-the-mindfulness-meditation-muscle/) and [second](https://feelinggood.com/2019/04/15/137-mindfulness-part-2-muscle-or-myth/) podcasts on Mindfulness Meditation to be useful or interesting.
 
 David
-
- 
-
- 
-
-
 
 Mon, 09 Dec 2019 09:00:00 +0000
 
 ### [171: Ask David: "Burn Out," Physical Pain, and more](http://feelinggood.libsyn.com/171-ask-david-burn-out-physical-pain-and-more)
 
+Mon, 16 Dec 2019 09:00:00 +0000
+
 Today, Rhonda rejoins us as host after a three week hiatus! My neighbor, Dave Fribush, joins us as well, as we answer two thought-provoking questions!
 * Is it possible to treat “burnout?”
 * Can negative feelings can make physical pain worse?
-**1. Does "burnout" exist? How do you treat it?**
-**Comment:** Hi!
-I have been listening to your podcast for a while now and it has helped, and has encouraged me and made me feel less alone. Thank for your work and sharing your podcast with us!
-My situation now is very much defined by my burnout syndrome (a medical diagnosis in Sweden, not sure about the US) and/or depression. From what I’ve learnt there is no evidence of CBT as a treatment for burnout - really nothing other than adaptations at your workplace. What triggered me to ”hit the wall” was studying too hard and not giving my body and mind time to recover.
-Do you have any thoughts on burnout and effective treatment of it? I feel I have made huge progress in the underlying reasons to my burnout like perfectionism, performance-based self-esteem, figuring out how I want my life to be, who I am etc (although the last one is a big one!). All this with the help of CBT and other sorts of therapy. What remains is mental fatigue, on and off anxiety, not being able to focus and hardly any mental or emotional resilience.
-Through healthcare, you are basically treated for depression, the treatment being anti-depressants. I’ve been on sick leave full time for over four years now, am in my late twenties and am constantly frustrated, sad and feeling stuck. I want to get going towards this life I now know that I want but I don’t seem to get any better. I eat and sleep well and exercise. I realize this could be a complete medical question but nobody REALLY seems to know anything about burnout. A long question but hey ho :) Would be grateful for any thoughts you might have, thanks again!
-Sincerely,
-Elisabeth
 
-Hi Elisabeth,
+> Dave Fribush emphasizes that while the surgeon's warmth and compassion were helpful, the thing that made my pain suddenly disappear was the sudden disappearance of my negative feelings--intense anxiety about losing my teeth, as well as anger at feeling that I was being neglected. And the very moment my negative feelings changed, my anger disappeared as well.
 
-I’m sorry to hear that you’ve been struggling for some time, but I'm glad you've been making progress, and I'm so glad you wrote to me.
-
-To my way of thinking, there is really no such “thing” as burnout. Depression, anxiety, anger, and other negative feelings do exist. Burnout is just a vague buzzword for feeling upset when something upsetting has happened.
-
-When I was in clinical practice, I saw as many as 17 depressed and anxious patients in one day, and as the day went on, I just got higher and higher and more energetic. That's because I loved what I was doing and felt I had something to offer, a lot, actually. I only got "burned out," or unhappy, if I felt I had said something that hurt someone's feelings, or if I had not done a good job for someone. Then I got really upset, but it was my thoughts, and not what I was doing, that caused my feelings. That, of course, is the cognitive model.
-
-I found it helpful to zero in on one moment when I was feeling depressed, anxious, or “burned out,” and to do a Daily Mood Log focusing on that moment. I’ll attach one to this email in case you are interested. I’ve also included a completed one so you can see how it works. This is not a similar case, just something I grabbed by way of illustration.
-
-Thanks,
-
-David (a fellow Swede)
-
-On the show, I describe one of the most stressful experiences of my career, when I appeared on a Philadelphia TV show with Maury Povich, and a patient of mine threatened to commit suicide. Fortunately, the story had a surprise ending that was very positive.
-
-So my message is one of hope. The idea is to focus on some specific thing you are upset about, as opposed to getting overly focused on a concept like "burnout."
-
-I think we all feel pretty exhausted at times, and if you've been studying or working too hard, it definitely makes sense to take a break to take care of yourself. When I transferred from my residency training program at Highland Hospital in Oakland, California, to the residency program at the University of Pennsylvania, in Philadelphia, one of my supervisors gave me this advice--he told me to make sure I set aside at least one half a day a week to stare at walls.
-
-What he meant was that I was working intensely, 24/7, during the first two years of my residency, and he wanted to make sure I gave myself a break to rest from time to time. So every Sunday afternoon I just watched football games on TV, often with a cat on my lap. This was refreshing and helpful, and my supervisor's advice helped me avoid feeling guilty for not working 24/7!
-
-**2. More on physical pain. Is it really true that negative feelings can make physical pain worse?**
-
-We recently did a podcast with Dr. David Hanscom, a back surgeon who emphasized non-surgical treatments for back pain that can be surprisingly helpful. In that podcast, I described my research indicating that 50% of the pain we experience can the result of negative feelings, such as depression, anxiety, and anger. And if you can reduce or eliminate those negative feelings, your physical pain will often diminish substantially, and may even disappear entirely.
-
-I first discovered this amazing phenomenon when I had a dramatic and traumatic personal experience as a medical student. One night I was drinking beer at a bar in Palo Alto, and hurt a commotion, and turned to look. A fight had broken out, and although I was not involved in the fight, I saw a beer mug flying in slow motion toward my face. It hit my jaw, and glass exploded everywhere, and blood came gushing out of my mouth.  I realized that my jaw was broken, and my front teeth were loose as well, so I ran outside to my old VW Beetle and drove at high speed to the emergency room of the Stanford Hospital. I ran inside and announced that I was a medical student and my jaw was broken.
-
-They put me on a gurney, and ordered an x-ray. I was in intense pain, and I was scared and angry, and still intoxicated, and probably wasn't the most cooperative patient.
-
-Eventually, a plastic surgeon was consulted and he talked to me after reviewing the X-ray. He explained that I had a broken jaw, and that he was going to hospital me and do surgery in the morning. He said my jaw would be wired shut for six weeks.
-
-I asked if I was going to lose my front teeth that were loose. He said he didn't think so, but that I would have a dental consult to check things out after they removed the wires on my jaw in six weeks. Then he said that he knew I was in severe pain, and that he'd ordered pain shots for me during the night. He said he wanted me to be comfortable, and explained that he wanted me to request a pain shot any time I was in pain during the night. Then he put his hand on my shoulder and said, "This is very routine, and you're going to be fine."
-
-At that very moment, my pain instantly went from severe to zero, and I did not need a single pain shot all night long.
-
-Dave Fribush emphasizes that while the surgeon's warmth and compassion were helpful, the thing that made my pain suddenly disappear was the sudden disappearance of my negative feelings--intense anxiety about losing my teeth, as well as anger at feeling that I was being neglected. And the very moment my negative feelings changed, my anger disappeared as well.
-
-My later research confirmed that negative emotions can, in fact, magnify the experience of physical pain, and that, on average, 50% of the pain we experience results from our negative emotions. This finding should provide hope for individuals struggling with physical pain, especially since this is a drug-free treatment not involving opiates.
-
-if you want to reduce your negative feelings, one approach would be to read one of my books, like **Feeling Good or When Panic Attacks.**
-
-<img class=" wp-image-14080 aligncenter" src= "https://feelinggood.com/wp-content/uploads/2019/08/download-002.jpeg" alt="download (002)" width="70" height="113" />
-
-They are, of course, not guaranteed to cure you, but research confirms that many people who read them do develop a more positive outlook on life and experience significant reductions in depression and anxiety. And the can be obtain inexpensively at Amazon or other book sellers. 
-
-<img class=" wp-image-42 aligncenter" src= "https://feelinggood.com/wp-content/uploads/2013/07/whenpanicattacks-sm.jpg" alt="whenpanicattacks-sm" width="91" height="137" />
-
-Next week, David, Rhonda and Dave will discuss three more questions you have submitted:
-* Does emotional trauma cause brain damage?
-* Do you have to have a good cry when something traumatic happens?
-* Why does avoidance make anxiety worse?** **
-David & Rhonda
-
-
-
-Mon, 16 Dec 2019 09:00:00 +0000
+> My later research confirmed that negative emotions can, in fact, magnify the experience of physical pain, and that, on average, 50% of the pain we experience results from our negative emotions. This finding should provide hope for individuals struggling with physical pain, especially since this is a drug-free treatment not involving opiates.
 
 ### [172: Ask David: What's the Impact of Emotional Trauma on the Brain? And more](http://feelinggood.libsyn.com/172-ask-david-whats-the-impact-of-emotional-trauma-on-the-brain-and-more)
 
-Happy Holidays to everyone! Today's podcast is nestled between Hanukkah (on the 22nd) and Christmas Eve (on the 24th.) We send our warmest greetings to all of our listeners of all religious faiths.
-Today, Rhonda, Dave and David discuss three questions you have submitted:
-* Does emotional trauma cause brain damage?
-* Do you have to have a good cry when something traumatic happens?
-* Why does avoidance make anxiety worse?
 **1. Is it true that emotional trauma affects the brain?**
-Hi again Dr Burns,
-I love the 5 secrets, and have had great success in my new job by implementing them! I keep listening to all the 5 secrets podcasts over and over to keep it fresh for me and really loved the podcast on advanced techniques.
-My question today is about how trauma affects the brain. ‘Trauma’ is the new buzz word in education, and psychologists are creating presentations geared for teachers and other school professionals that claim the “trauma-affected brain” is altered and cannot learn as easily. They allege imaging technology can prove this.
-Do you know if PTSD/trauma actually impacts a person’s ability to learn? I thought that it was the negative thoughts that interfere with attitudes toward learning, not an actual brain impairment.
-Another term that is used frequently is “intergenerational trauma”, meaning if my parent experienced trauma, it could be passed down to me and therefore impact my ability to cope with life stressors. Any thoughts? Any credible research you are aware of?
-In the Ask David, could you also include your opinion on how Adverse Childhood Experiences impact people's mental health and ability to cope?  There are a range of experiences cited in studies from moving around a lot in childhood to witnessing a murder to molestation.  After listening to your podcast episode 147 (Garry with PTSD) I was satisfied with the effectiveness of TEAM to treat trauma rapidly.  But then I remembered a documentary I had seen about 'feral children' who were extremely neglected as children, and I wondered if there are some cases where the psychology or potential of a person is forever impacted by an adverse childhood experience.  Your take?
-All the best,
-Jackie
-Educational Consultant
-Mountaintop School Division
-**Answer**
 
 David finds these buzzwords and buzz-theories somewhat misleading, and sometimes even pseudo-scientific. He has treated large numbers of patients struggling with the effects of severe trauma, and has found that trauma patients are usually the easiest to treat and the quickest to learn. David like to focus on rapid healing, using TEAM-CBT, rather than sending people the message that they are impaired, damaged or defective because of some emotionally traumatic experience.
 
-In fact, nearly all humans have experienced quite a lot of traumatic events, which can range from mild to extreme. And lots of us have some degree of brain damage. My brain (David Burns) was squashed at birth, for example, and there are certain cognitive functions that I’m not very good at. For example, for some reason, I can't often find something that's right in front of me, and I have lots of trouble remembering names and faces.
-
 I just try to accept my many shortcoming and work around them. The problem is rarely our flaws or imperfections, but rather the distorted negative messages we give ourselves; messages that generate anxiety, fear, inadequacy, shame, and so forth.
-
-Of course, animals and humans with traumatic experiences at a young age, or any age, may struggle with fear and may seem, as you say, "feral." My wife and I (David) have adopted many feral cats, and have found that consistent warmth and love can lead to dramatic changes and the development of trust. We all have a history, and every person's story and suffering deserve respect and profound compassion.
 
 **2. What’s displacement? Is it true that you have to have a good cry when something traumatic happens?**
 
-Hi there again,
-
-I've been practicing TEAM-CBT for a year while at the same time studying Dr. Gordon Neufeld's theories on the need for "tears of futility" for true healing (including adaptation, maturation and development of resilience). He states that if we only work on the cognitive level, we risk to just displace the symptoms in our clients and they would miss out on maturation and adaptation. I'm wondering if you have ever seen a displacement of the symptom in treating your patients with TEAM-CBT?
-
-In most live sessions I've seen with you you seem to have this gift / skill to make it safe for the client to let the tears flow and that this often seem to be the moment when a breakthrough is about to happen. So I wonder if you think the client needs to shed tears or at least feel the feelings of futility or "true sadness" before we should move forward to methods (in addition to getting perfect empathy scores)? And what role you think tears play in the healing process?
-
-Would love to hear your thoughts on this! (See my last e-mail if you want more details to why I'm asking.)
-
-Thanks,
-
-Warmly, Malena
-
-**Answer**
-
-I am really pleased to see that you, Malena, are a certified TEAM-CBT therapist in Sweden! I always love to hear from a fellow Swede!
-
 You are right, Malena, that emotion is very important in therapy, since it shows that the patient trusts the therapist and is willing to be vulnerable. This is a critical part of the E = Empathy in TEAM-CBT. Therapy without emotion, without tears, may be overly technical, dry and almost "empty."
-
-In addition, some patients do intellectualize as a way of avoiding emotions. I call this fear of negative emotions “Emotophobia.” I try to confront patients who do this in a gentle way. I might say, “Gee, Jim, I just asked you how you were feeling, and I notice that you didn’t really answer my question. Did you notice this as well?”
 
 This technique is called Changing the Focus, and it has to be done in a kindly, non-threatening way. We discussed it on [a recent podcast](https://feelinggood.com/2019/09/16/158-changing-the-focus-one-of-the-advanced-secrets-of-effective-communication/) that was one of our most popular.
 
 I’ve seen a patient recently who had incredible problems sharing his own feelings in interactions with his wife, and equally intense problems acknowledging her feelings. If a patient is determined to overcome this fear of his or her feelings, using the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2019/09/Five-Secrets-Common-Errors-v-5.pdf), tremendous progress can be made, but the patient’s resistance has to be dealt with first.
 
-Early in my career, I was aware of the idea that if you don’t cry when a traumatic event, like the loss of a loved one happens, that you are setting yourself up for emotional difficulties, so I often pushed my patients to cry. And occasionally this was very helpful.
-
 But in general, I have not found it necessary to think that every patient **has** to cry, and it is definitely not true that crying during sessions is a panacea. During my residency training, I had many patients who cried constantly during therapy sessions without any improvement at all. They just kept crying and crying every session! You could even argue that this makes patients worse, because you continually activate and strengthen the same negative circuits in your brain.
-
-When I learned cognitive therapy, I had many tools to help patients change their lives, and that's when I became to see far more improvement and recovery. The tears were helpful, but rarely or never curative.
-
-If you are getting perfect empathy scores from your patients on the scales on the Evaluation of Therapy Session, Malena, you are doing great! Way to go!
-
-David (a fellow Swede)
 
 **3. Why does avoidance make anxiety worse?**
 
-Hi Dr. Burns,
-
-I love your show and work so much. I can't wait to buy "Feeling Great."
-
-There's a question I've had for about three years that I've badly wanted to get my head wrapped around. It's in regard to something I've heard you say on a Feeling Good Podcast: "Most experts in exposure therapy or behavior therapy say that attempts to control your symptoms (of anxiety) is the cause of all anxiety." I have heard others say that too/
-
-Why is this?
-
-I understand if you push-through an anxiety you can learn whether it's warranted or not.
-
-But how is trying to avoid an anxiety actually the cause of all anxiety?
-
-I want to be able to understand it for when I feel myself trying to move away from social anxiety I can understand at a moment's notice why doing so actually is the cause of all my anxiety. To be able to skewer the rationalizations in my mind of why I shouldn't push-through.
-
-Thank you David.
-
-Best Regards,
-
-Mark
-
-**Answer**
-
-Rhonda, David and Dave discuss why avoidance makes anxiety worse, and why exposure often leads to improvement or even complete recovery. David describes the incredible resurgence of his own fear of heights when he took his children on a camping adventure in Havasupai Canyon in Arizona one spring when he and his wife were living in Philadelphia, and he avoided climbing down a cliff he had climbed down many times when he was younger.
-
-Anxiety is not caused by the thing you fear, but by your distorted thoughts and fantasies. When you pull back instead of confronting the monster, you do not get the chance to discover that the monster has no teeth, so your negative thoughts and fantasies can quickly spiral out of control.
-
-We will see you again next week for our final podcast of 2019. Thanks for so many wonderful questions, and for your support during the past year. We have had more than 1.5 million downloads, thanks to you! We look forward to serving you again in 2020!
-
-If you like the podcasts, please tell your family, friends, and neighbors. You are our marketing team! And if you are a mental health professional, you might be interested in my February workshop on therapeutic resistance with Dr. Jill Levitt. It's going to be a good one, and you can find the details below.
-
-Rhonda, David, and Dave
-
- 
-
-
+> Anxiety is not caused by the thing you fear, but by your distorted thoughts and fantasies. When you pull back instead of confronting the monster, you do not get the chance to discover that the monster has no teeth, so your negative thoughts and fantasies can quickly spiral out of control.
 
 Mon, 23 Dec 2019 09:00:00 +0000
 
 ### [173: Dr. Amir Sabouri on the Human Side of Medicine](http://feelinggood.libsyn.com/173-dr-amir-sabouri-on-the-human-side-of-medicine)
 
-This will be our last podcast of 2019, so we wanted to make it something special. We also want to thank all of you for your support over the past year, and wish you all the very best in 2020!
-Thanks to all of you, we surpassed 1.5 million downloads this year, and will likely hit 2 million in the spring of 2020. If you like the Feeling Good Podcasts, please tell your friends and family members, as word of mouth is our best marketing by far. In addition, if you are a member of any mailing lists, send them this link to [the list of all the Feeling Good Podcasts](https://feelinggood.com/list-of-feeling-good-podcasts/). On any given day, 30% of human beings are feeling depressed and / or anxious, so you'll be doing lots of  people a favor, since the podcasts, as you know, are entirely free.
-We are joined today by Amir Sabouri, PhD, MD, a highly esteemed neurologist from Iran with extensive medical training in the United States in addition to his PhD research in molecular immunology in Japan. Amir specializes in the treatment of horrific neuromuscular disorders such as ALS (the dreaded Lou Gehrig's Disease) at one of our local Kaiser Hospitals here in the San Francisco Bay Area. In today's riveting and inspiring interview, Amir describes how he discovered that, in spite of his extensive technical training, his strongest and most effective medicine by far is sometimes a healing dose of humility and compassion, delivered with the Five Secrets of Effective Communication.
-We are also joined by our wonderful host, Dr. Rhonda Barovsky, as well as my friend and neighbor, Dave Fribush, who has joined many of our podcasts recently, as well as Steve Reinhard, a certified coach and TEAM-CBT therapist who flew in from Colorado for the Sunday hike and podcasts. Steve will be the featured guest on next week podcast, along with his wife, Barbara, on the topic of "Sadness as Celebration."
-<img class="alignnone size-full wp-image-14716" src= "https://feelinggood.com/wp-content/uploads/2019/10/Amir-Steve-podcast-339368457-1571837467981.jpg" alt="Amir Steve podcast" width="4032" height="3024" />
-Back row: Amir, David, Rhonda, and Dave Fribush. Front row: Steve and Barb
-Amir and I have had a friendship and professional collaboration that goes back several years, when Amir first joined one my Sunday hikes, along with his wife, Dr. Sepideh Bajestan, PhD, MD, who was one of my students during her psychiatric residency at Stanford. In the past couple years, Amir has attended the Sunday hikes regularly and has worked hard to learn and master TEAM-CBT, especially the Five Secrets of Effective Communication, which have begun to play a huge role in his clinical and professional work.
-Amir begins with a description of the first time he did personal work on one of the Sunday hikes.  At the time, Amir was struggling with feelings of sadness, guilt and inadequacy about his role as a physician and neurologist. That's because, in spite of his incredible background training and research in molecular immunology and neuromuscular pathology, the bottom line was that he had no cure to offer his many patients he had to diagnose with incurable diseases, such as ALS, and he confessed that he often felt like a failure in his attempts to help these unfortunate patients and their families.
+Mon, 30 Dec 2019 09:00:00 +0000
 
-However, by looking at his own negative thoughts, and pinpointing the distortions in them, he was able to challenge and crush those thoughts, and accept the incredible value of the immense caring and compassion he brought to his work with his patients. The change he experienced on that hike was quite pronounced, and was arguably his first "enlightenment." It was a very moving experience for me, too.
-
-Next, Amir tackled the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf), and worked extremely hard to practice and master these techniques, which have also been invaluable in his medical work. He describes two recent patient encounters where these skills were invaluable. One involved an angry new patient who aggressively criticized Amir from the very moment he walked in the door. The many also criticized bitterly all the other doctors he'd seen. He complained that he didn't want to be there, that nobody could help, and that nobody cared about him.
-
-Amir responded using the Five Secrets of Communication, empathizing and disarming hat the man was saying, and using "I Feel" Statements, Feeling Empathy, Stroking, and Inquiry as well. The man suddenly began to sob and share his deepest feelings throughout his entire encounter with Amir. At the end, Amir was concerned that he'd given him "nothing" other than his efforts at skillful listening using the Five Secrets, and was afraid the man might issue yet another complaint.
-
-One hour later, Amir received a touching email from the patient, filled with praise and gratitude, and he said he felt hope for the first time! We talked about the paradox of "giving nothing," just listening with compassion, without trying to help or fix. and how this is often the greatest gift of all.
-
-Amir also talked about his interaction with a young woman who suffered horrific complications from a powerful medication that Amir had prescribed for her neurologic problem, and Amir was flooded with guilt and fear, thinking that he had failed her and that he might get sued. But once again, his use of the Five Secrets transformed their interaction into a deeply meaningful connection.
-
-We discussed how training in the Five Secrets should perhaps be mandatory for medical students, and residents as well, since rigorous training in communication with patients is not really a part of medical training, although the doctor patient relationship is, of course, given lip-service. Of course, we also strongly feel that Five Secrets training should be mandatory for all human beings!
+> We are joined today by Amir Sabouri, PhD, MD, a highly esteemed neurologist from Iran with extensive medical training in the United States in addition to his PhD research in molecular immunology in Japan. Amir specializes in the treatment of horrific neuromuscular disorders such as ALS (the dreaded Lou Gehrig's Disease) at one of our local Kaiser Hospitals here in the San Francisco Bay Area. In today's riveting and inspiring interview, Amir describes how he discovered that, in spite of his extensive technical training, his strongest and most effective medicine by far is sometimes a healing dose of humility and compassion, delivered with the Five Secrets of Effective Communication.
 
 I mentioned an experience I had as a medical student working in the medical outpatient clinic at Stanford under the direction of Dr. Allen Barbour, who wrote a beautiful book on the human side of medicine, [Caring for Patients](https://www.amazon.com/Caring-Patients-Critique-Medical-Model/dp/0804723893). I was assigned to a mailman who had been struggling with intractable angina, which is relentless chest pain due to problems with the blood supply to the heart. He was scheduled for one of the first open heart surgeries at Stanford. The idea was to improve the blood circulation to the heart, and the surgery was brand new and still somewhat experimental, and potentially quite risky.
-
-While I was examining the patient, I had a hunch that something was "off," and asked the man if there were any problems in his life that were bothering him. This led to an unusual and unexpected set of events you can hear about on the podcast. Telling the story so many years later brought tears to my eyes.
-
-After the podcast, Steve Reinhard, who had been in our "live audience" at the "Murietta Studios" today, began to cry and mentioned his own struggles with cancer. He told us how hard it has been for him to find compassionate doctors who seem to care, and how wonderful it would be if he could find a gentle, humble and loving doctor like Amir! We decided to edit Steve's comments into today's podcast as well.
-
-High tech medicine is wonderful, and evolving rapidly, with new healing miracles every day. But the doctor's most powerful medicine, by far, is still the bedside manner, just as it has been for the last two thousand years.
-
-The Five Secrets of Effective Communication can enrich your life, too, and can vastly improve your interactions with loved ones, friends, and colleagues. These tools can also make you more effective in the business world, or in any human interaction. Our world seems very troubled these days, to say the least, and we can all start some healing by changing the way we relate to others and learning to speak with our third "EAR," which stands for Empathy, Assertiveness, and Respect.
-
-I hope that doesn't sound hopelessly corny, elderly, or demented, but if so, I will have to plead guilty as accused.
-
-Thanks so much for tuning in today, and if you like these shows, please tell your friends!
-
-If you would like to learn more about the Five Secrets, a great first step would be to read my book, [.](https://amzn.to/2YSDP64">Feeling Good Together</a><a href= "https://amzn.to/2KQBhLZ) Make sure you do the written exercises while you read, and make sure you practice as well!
-
-[<img class= "alignnone wp-image-357" src= "https://feelinggood.com/wp-content/uploads/2013/07/feelinggoodtogether.jpeg" alt="Feeling Good Together" width="103" height="157" />](https://amzn.to/2YSDP64)
-
-On the right hand panel of every page on my website, www.feelinggood.com, you'll find a Search function. If you type in "Five Secrets" or "Relationships," you'll find many helpful podcasts on this topic as well.
-
-Learning the Five Secrets takes lots of commitment and practice. It's like learning to play the piano or learning to play tennis. You'll have to work at it. Amir is incredibly brilliant, and he had to work at, too. If you're willing to do the same thing, the results can change your life, too!
-
-All the best,
-
-Amir, Rhonda, Dave, Steve, and David
-
-**Note: **As an Amazon Associate I earn from qualifying book purchases. My books are available from virtually any online or in-person book seller.
-
-
-
-Mon, 30 Dec 2019 09:00:00 +0000
 
 ### [174: Sadness as Celebration featuring Steve & Barbara Reinhard](http://feelinggood.libsyn.com/174-sadness-as-celebration-featuring-steve-amp-barbara-reinhard)
 

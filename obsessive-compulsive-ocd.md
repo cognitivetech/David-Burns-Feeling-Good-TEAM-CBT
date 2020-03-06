@@ -1,53 +1,66 @@
 # Team CBT and OCD
 
 
+### [021: Ask David — Shameful Sexual Fantasies](http://feelinggood.libsyn.com/021-ask-david-shameful-sexual-fantasies)
+
+A listener with OCD is plagued with intrusive and shameful sexual fantasies. David discusses his treatment strategies for a young man from Argentina who was struggling with forbidden fantasies of Jesus having sex with the Virgin Mary in all positions of the Kama Sutra, but the harder he tried to control them, the more intense and tantalizing they became. Being a good Catholic lad, he was terrified and tearful he would burn in hell if he didn’t overcome this problem.
+
+If you’ve ever struggled with shameful sexual fantasies, you might be intrigued by this fascinating discussion of **Cognitive Flooding**, therapeutic resistance, and the **Hidden Emotion Technique**!
+
+Mon, 30 Jan 2017 06:00:00 +0000
+
+
 ### [043: Ask David — The Hidden Emotion Technique for OCD](http://feelinggood.libsyn.com/043-ask-david-the-hidden-emotion-technique-for-ocd)
-
-Listeners submitted questions on OCD (Obsessive-Compulsive Disorder): Is it an organic illness? Are drugs necessary in the treatment? What’s the best book to read if you want to heal yourself? What’s the prognosis?
-Drs. Nye and Burns begin by explaining OCD and answering the questions. David emphasizes the importance of using four treatment models when working with OCD—the cognitive model, the motivational model, the exposure model, and the hidden emotion model if you are hoping for a rapid and complete elimination of symptoms. Treatment that focus on only one treatment method, such as exposure and response prevention, may have only limited success.
-
-He describes his treatment of a medical student named Ralph with classic OCD. Ralph was frequently plagued by the fear he was dying of AIDS; then he’d get so anxious that he’d go to the emergency room and insist on having a blood test for HIV. These always came out negative, and this brought temporary relief, but within a few days Ralph would be worrying about AIDS again and feeling the overwhelming compulsion to get yet another blood test.
-
-The case was especially curious because Ralph was engaged and faithful to his fiancé, so there was no rational reason for him to think he had become infected with the HIV virus. However, he’d tell himself, “Maybe I drew blood on a patient with AIDS and then pricked myself with the needle, and then forgot. And how can I know that this didn’t happen?” This are extremely typical of the kind of obsessions that plague OCD patients. Ralph would torture himself with these thoughts until he succumbed to the urge to get another blood test for AIDS.
-
-Although years of conventional psychotherapy had failed this patient, the [**Hidden Emotion Technique**](https://feelinggood.com/2016/05/28/hidden-emotion-technique/) led to an incredible recovery in just a few minutes during a therapy session. You will find this true story inspiring and amazing! And David provides an even more amazing 40-year follow up report!
-
-#027: [**Scared Stiff — The Hidden Emotion Model**](https://feelinggood.com/2017/03/13/027-scared-stiff-the-hidden-emotion-model-part-5/).
 
 Mon, 03 Jul 2017 05:00:00 +0000
 
+Listeners submitted questions on OCD (Obsessive-Compulsive Disorder): 
+* Is it an organic illness? 
+* Are drugs necessary in the treatment? 
+* What’s the best book to read if you want to heal yourself? 
+* What’s the prognosis?
+Drs. Nye and Burns begin by explaining OCD and answering the questions. 
+
+> David emphasizes the importance of using four treatment models when working with OCD—the cognitive model, the motivational model, the exposure model, and the hidden emotion model if you are hoping for a rapid and complete elimination of symptoms. Treatment that focus on only one treatment method, such as exposure and response prevention, may have only limited success.
+
+> Although years of conventional psychotherapy had failed this patient, the [**Hidden Emotion Technique**](https://feelinggood.com/2016/05/28/hidden-emotion-technique/) led to an incredible recovery in just a few minutes during a therapy session. You will find this true story inspiring and amazing! And David provides an even more amazing 40-year follow up report!
+
+#027: [**Scared Stiff — The Hidden Emotion Model**](https://feelinggood.com/2017/03/13/027-scared-stiff-the-hidden-emotion-model-part-5/).
+
 ### [044: Can OCD Be Cured?](http://feelinggood.libsyn.com/044-can-ocd-be-cured)
-
-David describes his treatment of a physician with OCD who was tortured by the fear that he would impulsively throw his newborn baby over the railing of his second-floor apartment. He also describes a psychologist with OCD who washed her hands more than 50 times a day for fear of contamination. In addition, she spent hours every day making sure that nothing in her house was arranged in groups of three—including furniture, table settings, decorative objects, magazines on tables, and so forth. Arrangements in groups of 2 were okay, as were groups of 4, 5 or more objects. Why was she so obsessed?
-
-What were the hidden emotions that fueled these obsessions and compulsions? David and Fabrice will give you the chance to pause the recording on three occasions to jot down your hypotheses before they give you the answers. It won't be important to get it "right," but it is highly desirable to take a stab at it.
-
-This podcast will be of interest to you if you or a loved one is struggling with OCD, or **any** form of anxiety, including phobias, panic attacks, chronic worrying, and so forth. That's because the hidden emotion phenomenon, or excessive “niceness,” may be a the root of your fears as well. Bringing those feelings to conscious awareness will often lead to sudden relief, or even a complete elimination of your symptoms.
-
-In the next Feeling Good Podcast, David and Fabrice will describe dramatic examples of **exposure and response prevention** in the treatment of OCD, including a woman who was tortured by the fear that she’d received the wrong baby at the hospital after her first child was born. What causes these bizarre symptoms, and what’s the most effective treatment? Stayed tuned and you’ll find out!
 
 Mon, 10 Jul 2017 05:00:00 +0000
 
+> David describes his treatment of a physician with OCD who was tortured by the fear that he would impulsively throw his newborn baby over the railing of his second-floor apartment. He also describes a psychologist with OCD who washed her hands more than 50 times a day for fear of contamination. In addition, she spent hours every day making sure that nothing in her house was arranged in groups of three—including furniture, table settings, decorative objects, magazines on tables, and so forth.
+
+> What were the hidden emotions that fueled these obsessions and compulsions? David and Fabrice will give you the chance to pause the recording on three occasions to jot down your hypotheses before they give you the answers. It won't be important to get it "right," but it is highly desirable to take a stab at it.
+
+> This podcast will be of interest to you if you or a loved one is struggling with OCD, or **any** form of anxiety, including phobias, panic attacks, chronic worrying, and so forth. That's because the hidden emotion phenomenon, or excessive “niceness,” may be a the root of your fears as well. Bringing those feelings to conscious awareness will often lead to sudden relief, or even a complete elimination of your symptoms.
+
 ### [045: More on OCD — Cognitive Flooding](http://feelinggood.libsyn.com/045-more-on-ocd-cognitive-flooding)
-
-Fabrice begins with another question on OCD—if you successfully extinguish the symptoms with Exposure and Response prevention, would they just resurface in some other form, such as worrying, or some other anxiety disorder. David agrees, and describes the solution to this problem.
-
-Then David describes his treatment of a pregnant woman with OCD who was afraid her baby would be switched at the hospital so that she’d end up with the wrong baby. Although she rationally recognized that this fear was irrational, she could not shake it from her mind, and obsessed about it constantly.
-
-After trying more than 30 CBT techniques that did not work, David used the What-If Technique to pinpoint her deepest fear, which turned out to be quite shocking, to say the least. He then encouraged her, with some reluctance, to confront this fear using Cognitive Flooding.
-
-After describing the surprising outcome, David and Fabrice discuss the fact that 75% of American therapists are afraid to use Exposure Techniques because of the fear that the patient is too fragile, or they will re-traumatize the patient. David reminds us that this is “reverse hypnosis,” where the patient hypnotizes the therapist into believing something that is not true. If the patient is successful, and the therapist agrees not to use Exposure, the prognosis for effective treatment is quite poor. David gives an example of a therapist who was afraid to ask an OCD patient to drink one ounce of coca cola—something the patient feared would drive him into insanity!
 
 Mon, 17 Jul 2017 05:00:00 +0000
 
+> Then David describes his treatment of a pregnant woman with OCD who was afraid her baby would be switched at the hospital so that she’d end up with the wrong baby. Although she rationally recognized that this fear was irrational, she could not shake it from her mind, and obsessed about it constantly.
 
-### [058: Ask David — Third-Wave Therapies & Exposure for OCD](http://feelinggood.libsyn.com/058-ask-david-third-wave-therapies-exposure-for-ocd)
+> After trying more than 30 CBT techniques that did not work, David used the What-If Technique to pinpoint her deepest fear, which turned out to be quite shocking, to say the least. He then encouraged her, with some reluctance, to confront this fear using Cognitive Flooding.
 
-David and Fabrice begin by reading several incredibly touching reader comments on the live therapy with Marilyn. Marilyn experienced a severe depression relapse eight weeks after her initial session with Matt and David, because of a painful metastasis to her rib cage which frightened and demoralized her. She graciously agreed to come in for a tune-up with David and Matt which will be published as a special podcast within the next week or so. You will not want to miss this session!
+> After describing the surprising outcome, David and Fabrice discuss the fact that 75% of American therapists are afraid to use Exposure Techniques because of the fear that the patient is too fragile, or they will re-traumatize the patient. David reminds us that this is “reverse hypnosis,” where the patient hypnotizes the therapist into believing something that is not true. If the patient is successful, and the therapist agrees not to use Exposure, the prognosis for effective treatment is quite poor. 
 
-David addresses two questions posed by listeners. The first question has to do with so-called “third wave” CBT as well as Mindfulness-Based CBT and other innovations in CBT. David stresses the difference between specific and non-specific therapeutic techniques. He also discusses the distressing but exciting fact that few or no therapies have proven to be much more effective than placebos in the treatment of depression, and why this is the case.
 
-Another listener asked why David did not use Exposure initially in his treatment of the woman who was afraid that her baby would be switched at the hospital, and that she’d end up with the wrong baby. David concedes that if he’d thought of using Cognitive Flooding initially, it likely would have been effective. He also argues that Exposure and Response Prevention are not treatments for OCD, or for any anxiety disorder, but are simply tools one can use in treatment. David argues that for an optimal outcome, he combines four treatment models with every anxious patient: the Motivational Model, the Cognitive Model, the Exposure Model, and the Hidden Emotion Model. These models are discussed in detail on previous podcasts.
+### [162: HIgh-Speed Cure for OCD (Obsessive Compulsive Disorder)](http://feelinggood.libsyn.com/136-high-speed-cure-for-ocd-obsessive-compulsive-disorder)
+Mon, 14 Oct 2019 08:00:00 +0000
 
-Mon, 23 Oct 2017 05:00:00 +0000
+### “Yikes! I might get contaminated!” ### The Treatment of Sara Today we are joined by a woman named Sara, who will be featured in one of the chapters from my new book, **Feeling Great**.
 
+> You are probably aware that OCD plagued the life of the billionaire playboy, Howard Hughes, featured in the recent film, “The Aviator.” During the last years of his life, he became totally consumed by concerns about germs, and ended up isolated in the penthouse suite at the top of a hotel in Las Vegas. According to a “psychological autopsy” ([https://www.apa.org/monitor/julaug05/hughes](https://www.apa.org/monitor/julaug05/hughes)) published by the American Psychological Association, Hughes lay naked in bed in darkened hotel rooms in what he considered a germ-free zone. He even wore tissue boxes on his feet to protect them, and burned his clothing if someone near him became ill.
+
+Sara, today’s guest, was a victim of the same type of OCD. She describes how her intense fears of germs and contamination came on more than 20 years ago, and the devastating impact of the OCD on her as well as her relationships with friends and family. She also describes her shame about her rituals of constantly washing her hands and desperately trying to avoid contamination.
+
+
+> Wow! What a beautiful day! Thank you, Rhonda and David for the amazing opportunity to share my story! I feel very selfish but I enjoyed every minute of it. You both made me feel so comfortable and welcome. You two are so incredibly AWESOME! You make a superb team! :)
+
+
+>Sara Shane is a certified TEAM-CBT therapist practicing in the central valley of California (Stockton). She is multi-lingual and offers intensives—extended, single-session treatment of depression and all of the anxiety disorders. And, here’s something fantastic—although Sara is a superb therapist, her fees are modest, thus bucking the current trend of charging outrageous fees for psychotherapy in California. This is something I really admire and appreciate!
+
+If you would like to contact Sara, you can reach her at: 209-476-8867.
