@@ -331,15 +331,6 @@ Today’s Ask David questions.
 
 ### [140: Ask David--Hypochondria, Abuse Survivors, Healthy Euphoria, Mania, ADHD, LSD and more!](http://feelinggood.libsyn.com/140-ask-david-hypochondria-abuse-survivors-healthy-euphoria-mania-adhd-lsd-and-more)
 
-
-### Do I have ADHD? Is it a real disorder? 
-
-Hi podcast fans,
-Today we've got some terrific questions that you have submitted.
-
-**General Questions**
-
-
 * **Jose and Bri both asked:** How would you treat hypochondria?
 * **Christian:** How would you treat an abuse survivor? I’ve heard that talk therapy is inadequate for healing trauma!
 * **Ted:** Is there such a thing as healthy euphoria?
@@ -347,35 +338,17 @@ Today we've got some terrific questions that you have submitted.
 * **Jim:** I think I have ADHD, but some doctors claim it’s not a true diagnosis. What do you think?
 * **Dan:** What your thoughts are on LSD in the treatment of depression and anxiety?
 
-I could not get to all of your excellent questions in the time provided. The next time we do Ask David with general questions, we will include these:
-
-* **Guy:** What’s a nervous breakdown?
-* **Rob:** How would you treat a field goal kicker who’s afraid of missing the winning field goal? Would you use positive visualizations?
-* **Michael:** How would you treat someone with the fear of aging? I turn 60 in a few months!
-* **Hidem:** How fast is fast? You seem to get super-fast recoveries from your patients most of the time. How about other therapists? How rapidly does the average patient recover> 
-* **Rubens:** What you can do when you're upset but can't identify any negtaive thoughts?
-Next week, our Ask David will focus on questions about relationship conflicts and problems. Rhonda and I have lots of other cool programs planned in upcoming weeks.
-
-Thanks for tuning in today, and over the past months. We will hit one million downloads in a week or two (this is April, 2019). Rhonda, Fabrice, and I deeply appreciate your support!
-
-David and Rhonda
-
 Mon, 13 May 2019 08:00:00 +0000
 
 ### [146: When Helping Doesn't Help!](http://feelinggood.libsyn.com/146-when-helping-doesnt-help)
 
-Hi Listeners:
-Most people do not do a very good at helping loved ones, colleagues, or friends who are upset and complaining. Have you ever noticed that when you try to help or give advice they just keep complaining? This can be very frustrating--fortunately there's a fabulous solution to this universal problem. 
+> Most people do not do a very good at helping loved ones, colleagues, or friends who are upset and complaining. Have you ever noticed that when you try to help or give advice they just keep complaining? This can be very frustrating--fortunately there's a fabulous solution to this universal problem. 
 
 Rhonda, Jill, and I discussed the most common errors we all make when we lose patience with someone who's complaining, and illustrated the techniques that are effective. As usual, they involve the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf), especially Disarming, Stroking, and Feeling Empathy, along with some compassionate I Feel Statements.
 
-We also discussed the phenomenon of drifting in and out of Enlightenment, a concept first described by the Buddha. It is easy to drift out of enlightenment when we are rushing around, trying to get breakfast on the table, lunches made, kids to school, and ourselves off to work. It's so easy to feel overwhelmed and frustrated at those moments.
+> We also discussed a closely related and possibly controversial theme--is it okay to use the Five Secrets just to get someone to stop complaining, especially if you're angry with that person and they tend to complain most or all of the time? Do you always have to use the Five Secrets in a totally sincere manner? 
 
-Part of the process may include forgiving ourselves when we make mistakes, and using the 5-Secrets to repair relationships with our loved ones when we do. In fact, this can even lead to deeper and more loving relationships. 
-
-We also discussed a closely related and possibly controversial theme--is it okay to use the Five Secrets just to get someone to stop complaining, especially if you're angry with that person and they tend to complain most or all of the time? Do you always have to use the Five Secrets in a totally sincere manner? 
-
-[Click here if you are interested in some online training with Jill!](http://www.feelinggoodinstitute.com/)
+[online training with Jill!](http://www.feelinggoodinstitute.com/)
 
 David and Rhonda
 
@@ -385,30 +358,21 @@ Mon, 24 Jun 2019 08:00:00 +0000
 
 #### Is it REALLY Possible? And Can the Effects Last? 
 
-Rhonda and David interview Garry, a veteran who David treated for PTSD several years ago at a trauma workshop in Michigan. Garry describes how a repressed horrific memory from his childhood suddenly and forcefully re-emerged when he smelled some Queen Anne’s Lace that were in blossom. He suddenly remembered how a school bus he was riding home on hit a horse with a boy, Tommy, who was riding bareback, when the horse suddenly lurched in front of the bus. Tommy was Gary’s classmate.
-
-The bus driver said, “Don’t look!” But Garry watched as his friend, who was trapped under the dead horse, “bled out” and died.
-
-Once this totally forgotten memory re-emerged decades later, roughly 18 months prior to Garry’s session with David, it constantly intruded into Garry’s every interaction for the next year and a half. Garry says,
-
-“I was seeing Tommy all the time, and having symptoms of anxiety, intrusive memory and dissociation experiences. I would often see the image of Tommy lying on the pavement superimposed over conversations I was happened with people in an intimate way. It was quite disturbing and anxiety provoking.”
-
-Garry tearfully describes what he experienced during his TEAM-CBT session with David, including his dissociation at one point during the session, and the profound changes he experienced by the end of the session.
-
-Can severe PTSD be treated in a single therapy session? Did Garry **really** improve? Were the changes real? Did they last? And how did the therapy work?
-
-You’ll find out when you listen to this amazing and inspiring interview! We are incredibly indebted to Garry for his courage and openness to share this experience with all of you!
-
-
 Mon, 01 Jul 2019 08:00:00 +0000
 
+> Rhonda and David interview Garry, a veteran who David treated for PTSD several years ago at a trauma workshop in Michigan. Garry describes how a repressed horrific memory from his childhood suddenly and forcefully re-emerged when he smelled some Queen Anne’s Lace that were in blossom. 
+
+> He suddenly remembered how a school bus he was riding home on hit a horse with a boy, Tommy, who was riding bareback, when the horse suddenly lurched in front of the bus. Tommy was Gary’s classmate.
+> 
+> The bus driver said, “Don’t look!” But Garry watched as his friend, who was trapped under the dead horse, “bled out” and died.
+> 
+> Once this totally forgotten memory re-emerged decades later, roughly 18 months prior to Garry’s session with David, it constantly intruded into Garry’s every interaction for the next year and a half. Garry says,
+> 
+> “I was seeing Tommy all the time, and having symptoms of anxiety, intrusive memory and dissociation experiences. I would often see the image of Tommy lying on the pavement superimposed over conversations I was happened with people in an intimate way. It was quite disturbing and anxiety provoking.”
+
+> Can severe PTSD be treated in a single therapy session? Did Garry **really** improve? Were the changes real? Did they last? And how did the therapy work?
+
 ### [148: Ask David: What's in your new book? What's a nervous breakdown? How fast is fast? And more!](http://feelinggood.libsyn.com/148-ask-david-whats-in-your-new-book-whats-a-nervous-breakdown-how-fast-is-fast-and-more)
-
-#### How would you overcome the fear of aging? 
-
-#### Can you use TEAM for sports psychology? 
-
-#### Describe your typical day, David-- do you ever get down or anxious? 
 
 * **Vipul:** Tell us about your new book, Feeling Great. How will it be different from Feeling Good? And can people with schizoaffective disorder be helped? (story with Stirling Moorey)
 * **Guy:** What’s a nervous breakdown?
@@ -420,164 +384,67 @@ Thank you for all of your great questions, comments, and testimonials! Rhonda an
 
 ### [150: I'm anxious but don't have any negative thoughts. What can I do?](http://feelinggood.libsyn.com/150-im-anxious-but-dont-have-any-negative-thoughts-what-can-i-do)
 
-<h4 style="text-align: center;">What can you do when you can’t identify your negative thoughts?</h4> <h4 style="text-align: center;">Is it really true that our feelings always result from negative thoughts?</h4> <h4 style="text-align: center;">How can I get over my public speaking anxiety?</h4> Rubens, a faithful and enthusiastic Feeling Good Podcast fan, sent me an email with a terrific question that has both  practical and theoretical implications. He wrote:
-Dear Mr. David,
-I've read "Feeling Good" and I'm reading "When Panic Attacks" now. Both have and are helping me immensely.
-
-However, the one thing I have never understood is that my anxieties and worries often don't come as a thought. For instance, I have an academic presentation tomorrow, and I'm suffering from much anxiety because of that. But the symptoms did not appear because I thought in my mind the sentence "you are going to fail!". In my case, it is usually silent. I just remember that I have a presentation tomorrow, then I immediately feel worried. My chest hurts before any thought. How do I counter-argument my thoughts, if I have none?
-
-Thank you for replying, Mr. David!
-
- In today's podcast, Rhonda and I address this question and explain what to do when you can't pinpoint your negative thoughts. There are  two really good methods.
-
-We will also demonstrate how to deal with some of the negative thoughts that typically trigger public speaking anxiety. The cure involves changing the way you think, and changing the way you communicate with the people in your audience. If you've ever struggled with public speaking anxiety, this podcast may be helpful for you!
-
-Thank you again, Rubens, for your excellent question!
-
-David D. Burns, MD / Rhonda Barovsky, PsyD
-
 Mon, 22 Jul 2019 08:00:00 +0000
+
+* What can you do when you can’t identify your negative thoughts?
+* Is it really true that our feelings always result from negative thoughts?
+* How can I get over my public speaking anxiety?
 
 
 ### 153 - [Ask David: Is it ok to touch patients? Does Depression ALWAYS result from distorted thoughts? And more!](http://feelinggood.libsyn.com/153-ask-david-is-it-ok-to-touch-patients-does-depression-always-result-from-distorted-thoughts-and-more)	
+Mon, 12 Aug 2019 08:00:00 +0000
 
 * **Kelly** asks**:** Would love to hear a podcast about to use or not to use touch in therapy. I personally feel touch is extremely helpful (what is more natural than to hug or put a hand on someone hurting), however I believe our profession has become so “professionalized” that is leaves out such a power act of healing. Did you ever use touch when you were practicing, and do you feel it is appropriate?
 * **Against Machines Taking Over** asks: You say that depression always results from distorted thoughts. But the sadness that results from a failure, rejection, or disappointment is not distorted. Can you explain a bit more about this?
 * **Against Machines Taking Over** also asks: Is there something you used to advocate for before but then you changed your mind?
 * **Eduardo** asks: How do you treat hypochondriasis. Almost all articles and advices I've read for hypochondriasis try to cover the writer's back by first and foremost telling you that you should get yourself checked for real causes for your concern.
 * **Eduardo** also asks: I've been struggling with anxiety, and after reading When Panic Attacks, I got very interested in giving The Hidden Emotion model a try, but it seems to be structure-less. It seems to require a lot of detective work with no clear sheet or procedure. It's just Detective Work, and then do something about it. Is there some newer technique to dig into what's eating you?
-	Mon, 12 Aug 2019 08:00:00 +0000
-
-
-### [154: Ask David - Relationship Problems: What can you do when people "ghost" you? What can I do when my wife doesn't want sex? And more!](http://feelinggood.libsyn.com/154-ask-david-relationship-problems-what-can-you-do-when-people-ghost-you-what-can-i-do-when-my-wife-doesnt-want-sex-and-more)
-
-**Ask David Five Secrets Relationship Questions**
-**Kate** asks: I love listening to your podcasts and am currently reading my way through your book, **Feeling Good**. I appreciate that you have written and spoken about relationship problems at length, but in what I have read and heard so far I do not see how this can apply to the current climate of casual dating and hook up culture which is fueled by apps such as Tinder.
-I don't know how it's possible to build relationships when the dominant mentality is that people are disposable. It feels like no matter how much I find truth in what my date says, stroke them and empathize with them, that they will disappear ('ghost') at the drop of a hat.
-I think this may be a significant problem for many of your listeners, and would greatly appreciate your thoughts, as well as any practical steps on how to date in today's world.
-
-##### *** * * **
-
-**Eli** asks: Your work has helped me tremendously over the past 2 years. However, recently I’ve discovered something about myself that I don’t know how to change. I’d be really curious to hear your thoughts.
-For some reason, when it comes to sex, it seems that I have a lot of self-worth wrapped up in my sex drive. I’m realizing when my wife and I have sex I feel like I’m on top of the world afterwards. I feel so positive the following few days and I feel mentally and emotionally healthy. But it’s devastatingly real that the reverse is true as well... when we don’t have sex (and particularly when I reach out and she’s not in the mood) and when a week or so passes that we don’t have sex, I find myself feeling very insecure. I feel ugly, unlovable and generally less valuable as a person.
-
-Is there an exercise you would recommend for me to discover possible hidden thoughts/emotions that could be causing this? Is it possible to change this about myself?
-
-I want to have a close, intimate relationship with my wife (sexually and non-sexually) but I also want to feel valuable and positive whether or not we’re sexually active.
-
-PS - If, by chance, you address this on the podcast, could you refer to me as “Eli” or something else anonymous as you usually do.
-
-Thank you for all you have do!
-
-
-##### * * * 
-
-**Susan** asks: You seem like a good person to ask this question partly because you are a man. Someone I know, I won’t say whom, told me he felt emasculated when I asked him to take my car to the gas station to get the wipers replaced.
-
-He said that he should be able to replace them himself but doesn’t actually know how, so he would prefer if I took the car to the service station. I said that was stupid, granted not very diplomatic, and he said that’s what he gets for expressing his feelings, which I frequently complain he does not do.
-
-To me “emasculated“ is more of a concept or a thought. I will not get into toxic masculinity and the patriarchy, but I am curious what you think. By the way, this person and I have benefited a lot from your relationship journal exercise, thankfully we did not need it this time :-)
-
-##### * * * 
-
-**Knaidu** asks: Here’s a specific example which occurred whilst I was trying to use the disarming technique. It is one where I failed to use the technique.
-
-Anyway, I was meeting a friend of mine, and was a running a few min late for our lunch appointment. I couldn't send her text to let her know as I was driving. I arrived at least 5 min late. When I arrived she immediately said
-
-"I knew it all along, you really don't want to meet with me or actually have lunch with me!”
-
-I tried to explain that I was stuck in a traffic jam and couldn't text, but it didn’t work. Here’s what I said:
-
- “Please Mrs. X, I was stuck in a traffic jam and that's why I am late. Have I ever said I don't want to meet with you? And if I didn't why have I bothered to arrive at all, I mean I could have just not arrived if I didn't want to meet you!"
-
-After I said that she stormed off.
-
-I am afraid I could agree with her idea that I didn't really want to meet with her, because the truth was I did want to meet but couldn't help being late. I could agree with something that was not real to me and if I did try to agree, I would be lying to her.
-
-Please help me, David and Rhonda!
-
-Thanks for tuning in, and keep the great questions coming!
-
-David and Rhonda
-
-
-
-Mon, 19 Aug 2019 08:00:00 +0000
 
 ### [155: Treating Depression, Emotional Eating, and Self-Image Problems with TEAM-CBT](http://feelinggood.libsyn.com/155-treating-depression-emotional-eating-and-self-image-problems-with-team-cbt)
 
+Mon, 26 Aug 2019 08:00:00 +0000
+
 **The Story of Lorraine and “Anna”**
 
-In today’s podcast, David and Rhonda interview Dr. Lorraine Wong, a board-certified clinical psychologist, and her patient, “Anna,” who sought treatment recently for depression, anxiety, and self-image / self-esteem issues. But first, David and Rhonda answer a question submitted by Estafonia, a “public image consultant,” who asks about the treatment of a woman who sees herself as “fat.”
+> In today’s podcast, David and Rhonda interview Dr. Lorraine Wong, a board-certified clinical psychologist, and her patient, “Anna,” who sought treatment recently for depression, anxiety, and self-image / self-esteem issues. But first, David and Rhonda answer a question submitted by Estafonia, a “public image consultant,” who asks about the treatment of a woman who sees herself as “fat.”
 
-Lorraine, Rhonda, David and Anna quickly diagnose the most likely cause of Estefania’s stuckness—she is trying to “help” her patient without first melting away her patient’s resistance. This is the cause of practically all therapeutic failure, and you’re not really doing TEAM-CBT if you don’t know how to eliminate the patient’s resistance.
+> Lorraine, Rhonda, David and Anna quickly diagnose the most likely cause of Estefania’s stuckness—she is trying to “help” her patient without first melting away her patient’s resistance. This is the cause of practically all therapeutic failure, and you’re not really doing TEAM-CBT if you don’t know how to eliminate the patient’s resistance.
 
-That’s because most people are ambivalent about change. As the Jesuit mystic, Anthony DeMello, has said: “We yearn for change but cling to the familiar.” Recognizing and modifying this inherent ambivalence is the heart of A = Paradoxical Agenda Setting, but you can also think of the A as standing for “Assessment of Resistance.”
+> Once Estafonia and her patient list all these positives, Estafonia could ask her patient, “Given all these advantages and positive qualities, maybe it wouldn’t be such a good idea to stop telling yourself, ‘I’m fat.’ This thought seems to be working for you in a really positive way, and also reflects your core values.”
 
-How could we melt away this woman’s ambivalence / reluctance to stop bombarding herself with the message, “I’m fat”? It is important to realize that this self-critical thought, and, in fact, all of her negative thoughts and feelings have huge advantages for her, and also indicate some really beautiful and awesome things about her and her core values.
+> That’s the essence of Paradoxical Agenda Setting. We try, in a genuine way, to honor the patient’s resistance, rather than trying to sell the patient on change. This is very difficult for therapists to learn because of the compulsion to save, help, or rescue the patient.
 
-In addition, the thought may be protecting this patient from things she fears, like intimacy. As long as she tells herself, “I’m fat,” she does have to risk trying to get close, or having sex, or risking rejection. So the thought, in a way, is a form of self-love and self-protection.
+> Anna and Lorraine explain why the T = Testing and E = Empathy of TEAM were so critical to the success of the therapy. Anna says that Lorraine was, in fact, the first therapist “who **really** got me, and **really** understood me!”
 
-Once Estafonia and her patient list all these positives, Estafonia could ask her patient, “Given all these advantages and positive qualities, maybe it wouldn’t be such a good idea to stop telling yourself, ‘I’m fat.’ This thought seems to be working for you in a really positive way, and also reflects your core values.”
+> Anna emphasizes the enormous importance of the A = Paradoxical Agenda Setting (aka Assessment of Resistance) as well. Lorraine helped Anna discover what was beautiful and awesome about all of her negative feelings, including severe depression, shame, anxiety, anger, loneliness, and even hopelessness. 
 
-That’s the essence of Paradoxical Agenda Setting. We try, in a genuine way, to honor the patient’s resistance, rather than trying to sell the patient on change. This is very difficult for therapists to learn because of the compulsion to save, help, or rescue the patient.
+> The Positive Reframing proved to be a positive shock to the system, and Anna’s symptoms started to improve significantly even before starting the M = Methods phase of the TEAM-CBT treatment.
 
-After focusing on Estafonia’s excellent question, David, Rhonda, Lorraine and Anna talk about the emotional challenges that brought Anna to treatment, including severe feelings of depression which came on when Anna returned to the United States after 13 years working abroad. She was also feeling anxious, stuck, angry, and hopeless, and was comforting herself by binging on her three favorite foods.
+> Lorraine used David’s “Devil’s Advocate Technique,” to help Anna challenge the tempting thoughts that always triggered her overeating.
 
-Anna describes previous partial treatment failures, and explains that her previous cognitive therapist had “the empathy of a prison guard,” and contrasts those experiences with her successful experience with Lorraine. In fact, Anna describes the TEAM-CBT she received at the Feeling Good Institute as “cognitive therapy on steroids.”
-
-I (David) loved hearing that because this is how I think about TEAM-CBT, too! TEAM really **is** CBT on steroids! But, I’ve been too embarrassed to describe TEAM-CBT in this way, fearing it might sound crass or unprofessional.
-
-Anna and Lorraine explain why the T = Testing and E = Empathy of TEAM were so critical to the success of the therapy. Anna says that Lorraine was, in fact, the first therapist “who **really** got me, and **really** understood me!”
-
-Anna emphasizes the enormous importance of the A = Paradoxical Agenda Setting (aka Assessment of Resistance) as well. Lorraine helped Anna discover what was beautiful and awesome about all of her negative feelings, including severe depression, shame, anxiety, anger, loneliness, and even hopelessness. She said, “My depression and feelings of loss when I moved showed that I really care about what I do, as well as the people around me.”
-
-Anna also said that her anger showed that she was overly nice, out of her love for people, but that she had the right to set boundaries and stick up for herself, and didn’t always have to be a people-pleaser.
-
-The Positive Reframing proved to be a positive shock to the system, and Anna’s symptoms started to improve significantly even before starting the M = Methods phase of the TEAM-CBT treatment.
-
-The Positive Reframing made it relatively easy for Anna to smash the negative, self-critical thoughts that triggered her depression, anxiety, shame, and hopelessness, and then they moved on to other goals, such as using the Five Secrets of Effective Communication in her interactions with colleagues and friends.
-
-Finally, they focused on self-image issues, which brings us back to the question Estafonia had posed at the start of the podcast: How you can help patients with self-image problems and addictions to eating?
-
-Anna explained that when she was depressed, she had gained weight because of her addiction to salami (Mmmm!), ice cream (Yummm!), and rice and beans (WOW!) Lorraine used David’s “Devil’s Advocate Technique,” to help Anna challenge the tempting thoughts that always triggered her overeating.
-
-Rhonda and I are incredibly grateful to Lorraine (aka Dr. Wong) and “Anna” for this opportunity to bring TEAM to life in a very real and personal way. Thank you, Lorraine and Anna!
-
-[Dr. Lorraine Wong](http://www.drlorrainewong.com) is a certified Level 4 TEAM-CBT therapist and practices at the Feeling Good Institute in Mountain View, California. She specializes in the treatment of body image concerns and emotional eating, as well as depression and anxiety, with TEAM-CBT.
-
-Thanks for tuning in!
-
-David and Rhonda
-
-
-
-Mon, 26 Aug 2019 08:00:00 +0000
+> [Dr. Lorraine Wong](http://www.drlorrainewong.com) is a certified Level 4 TEAM-CBT therapist and practices at the Feeling Good Institute in Mountain View, California. She specializes in the treatment of body image concerns and emotional eating, as well as depression and anxiety, with TEAM-CBT.
 
 ### [156: Ask David: How can I cope with claustrophobia? What if the entire world thinks I am not worthwhile?](http://feelinggood.libsyn.com/156-ask-david-how-can-i-cope-with-claustrophobia-what-if-the-entire-world-thinks-i-am-not-worthwhile)
 
-### **Plus, Thomas Szaas, TV Shrinks, and more!** David and Rhonda are joined today by David's neighbor, friend, and hiking buddy, Dave Fribush. He has incredible technological skills, **and** wisdom.  We thank Dave for his support of our podcasts!
-We open the podcast with a wonderful email from a fan named Sushant who listened to Feeling Good Podcasts for nine hours during a rigorous hike to the "Tiger Monastery" in Bhutan. You can see Sushant and his phone, showing the podcast icon, just in front of the monastery.
-Rhonda encourages podcast fans from around the world to send photos of yourself listening to the Feeling Good Podcast in additional unusual or exotic locations! Might be fun to see what you send to us! 
-Here are the questions for today's program:
-**Ann** asks: Loved your podcast (on the exposure model, #26)! But I do have a question - I have suffered from panic attacks for years - the past 2 years I've become agoraphobic and don't want to be far away from my house. So, my phobia is now "having panic attacks." Does that mean I just need to go out and have a bunch of panic attacks in public to get over my fear? The thought seems terrifying.
-Also, I am severely claustrophobic which affects me anytime I feel trapped (elevators, small cars, traffic, tight spaces, etc.) Is there a protocol you used to treat patients with this? Just wanted to suggest perhaps a podcast on this subject, or agoraphobia, as it does affect many people worldwide.
+Mon, 02 Sep 2019 08:00:00 +0000
 
-**Nathan** asks: Dear David, Love your podcasts. I am currently preparing a lecture for psychology honors students here at Monash University on assessment of depression and anxiety. In your podcasts you mention that you conducted a "study on the psychiatric inpatient unit at the Stanford Hospital, in which I evaluated how accurate therapists’ perceptions of patients were after an interaction. Student researchers interviewed patients for several hours as part of a research study on psychiatric diagnosis."
+> **Ann** asks: Loved your podcast (on the exposure model, #26)! I have suffered from panic attacks for years - the past 2 years I've become agoraphobic and don't want to be far away from my house. So, my phobia is now "having panic attacks." Does that mean I just need to go out and have a bunch of panic attacks in public to get over my fear? The thought seems terrifying.
 
-I was wondering if you could provide me with a reference to this study? I could not find a specific reference in your website and I would like to be able to highlight to student's the results of your research.
+> **Nathan** asks: In your podcasts you mention that you conducted a "study on the psychiatric inpatient unit at the Stanford Hospital, in which I evaluated how accurate therapists’ perceptions of patients were after an interaction."
 
-**Richard** asks: I listened to your podcast on being worthwhile and found it interesting. You say all people are worthwhile. This may be true but does the whole world think this?
+> I was wondering if you could provide me with a reference to this study? 
 
-If a person is worthwhile but the world thinks they are not worthwhile, isn't this almost as bad as not actually being worthwhile. Don't we have to play by the world’s rules, however bad, instead of our own or the Platonic rules? What do you think?
+> **Richard** asks: I listened to your podcast on being worthwhile and found it interesting. You say all people are worthwhile. This may be true but does the whole world think this?
 
-**Robert** asks: Dear David. I am up to podcast #108. I am heading to India next month for a three-week trek and am going to download the rest onto my phone. Perhaps by the time I get back, I will be up to date!
+> If a person is worthwhile but the world thinks they are not worthwhile, isn't this almost as bad as not actually being worthwhile. Don't we have to play by the world’s rules, however bad, instead of our own or the Platonic rules? What do you think?
 
-I have never heard you mention Tom Szasz, who, as I am sure you know, was making some of the same observations about the constructs of medicalizing you make back in the 1960s and maybe even in the 50s. In particular, his criticism of the psychiatric industry giving the names of diseases or syndromes to behavioral issues was very consistent with yours.
+> **Robert** asks: I have never heard you mention Tom Szasz, who, as I am sure you know, was making some of the same observations about the constructs of medicalizing you make back in the 1960s and maybe even in the 50s.
 
-**Robert** also asks: My other question is an idea for future podcasts and it is...How about critiquing the therapeutic approach we see so often on television and in the movies? For the lay audience, these are probably the source of much of what they know about therapy. And because these therapists are well-known and fictional, it would give you an opportunity to make critiques without having to criticize an actual person. And it could introduce some levity into what can often be quite heavy.
+> In particular, his criticism of the psychiatric industry giving the names of diseases or syndromes to behavioral issues was very consistent with yours.
 
-Some of the Hollywood therapists people know best are:
+> **Robert** also asks: My other question is an idea for future podcasts and it is...How about critiquing the therapeutic approach we see so often on television and in the movies?
+
+> Some of the Hollywood therapists people know best are:
 
 * Judd Hirsch as the shrink in Ordinary People
 * Lorraine Bracco as the shrink in The Sopranos
@@ -587,13 +454,7 @@ Some of the Hollywood therapists people know best are:
 * Kelsey Grammer in Frasier
 I am sure there are many others. These are the ones who quickly came to mind
 
-I just found an article about this that might help make the case that what the public sees on TV and in the movies is not really reflective of the therapeutic process or good therapy. Here’s the link:
-
-[https://www.huffpost.com/entry/therapists-on-the-big-and_b_4263798](https://www.huffpost.com/entry/therapists-on-the-big-and_b_4263798)
-
-Thanks for tuning in!
-
-David and Rhonda
+[Therapists on the Big and Small Screens versus Real Life](https://www.huffpost.com/entry/therapists-on-the-big-and_b_4263798)
 
 **References for Nathan**
 
@@ -602,502 +463,32 @@ Burns, D., Westra, H., Trockel, M., & Fisher, A. (2012) Motivation and Changes i
 Hatcher, R. L., Barends, A., Hansell, J. & Gutfreund, M.J. (1995). Patients' and therapists' shared and unique views of the therapeutic alliance: An investigation using confirmatory factory analysis in a nested design. **Journal of Consulting and Clinical Psychology, 63(4)**, 636 - 643.
 
 
-Mon, 02 Sep 2019 08:00:00 +0000
-
-
-### [160: Listening to the Music of TEAM](http://feelinggood.libsyn.com/160-listening-to-the-music-of-team)
-
-
-### **Introducing Brandon Vance, MD ** <h3>**& Heather Clague, MD**
-
-This podcast features the music of two beloved colleagues, Brandon Vance, MD and Heather Clague MD. Brandon and Heather are both certified TEAM-CBT psychiatrists practicing in Oakland, California. Brandon is a brilliant multi-instrumentalist and singer / song writer / performer who has transformed his vision of TEAM-CBT into music! Heather is brilliant and fun improv acting teacher and performer who is quick in her mind and on her feet! Brandon and Heather have performed at David’s annual South San Francisco psychotherapy intensive for the past several years, and we are delighted to bring them to you up close and personal today!
-In today’s podcast, they’ll bring you their songs and amazing personal stories. And what is super cool is that you can follow the words for the music right here in the show notes.
-**Song #1**
-** **Heather and Brandon begin with music about a familiar but painful theme for nearly all of us—the feeling of failure, and the belief that we are somehow defective or just “not good enough.” Brandon and Heather are extremely talented and successful individuals, but they are not immune from suffering. During the podcast, they describe their own painful personal experiences with depression, anxiety, shame, and defectiveness.
-Most therapists, including David, were trained in the psychoanalytic tradition and told that we should NEVER disclose or reveal our own personal feelings or experiences to patients. But we believe that some personal disclosure can be very healing for patients if done with skill and compassion. Most patients want to hear this type of message from a therapist:
-“I’ve been there myself, and know how much pain you’re in. And I can show you the way out of the woods, so you can experience feelings of joy and self-esteem again. And what a joy that’s going to be!”
-So, with no further ado, Brandon and Heather perform their first song:
-**The Feel of Failure**
-Lyrics by Heather Clague and Brandon Vance<br /> to the tune of “The Sound of Silence” by Paul Simon
-Hello failure my old friend
-I’ve come to talk with you again
-Because my ego softly creeping
-Infects my thoughts while I am preaching
-And that vision that was planted in my brain
-Still remains; becomes the Feel of Failure
- 
-Fool, said I, you are so lame
-Done something wrong to feel this shame
-Perfect is the way that you should be
-Self-blame coming like a tsunami
-Negative thoughts one hundred - percent on my DML
-I was in hell
-Suffered the Feel of Failure
- 
-My self-esteem had turned to shit
-I needed the magic button hit
-Something told me my feelings weren’t lame
-
-Began to do a positive reframe
-
-Maybe my feelings say something about me that is pretty fly
-
-I set the bar high
-
-So I have a Feel of Failure
-
- 
-
-I saw that I was not alone
-
-Dared go beyond my comfort zone
-
-I took pride in my humility
-
-Welcomed my faults as my humanity
-
-And in a moment of enlightenment I cried and then I laughed
-
-I’d finally grasped
-
-The wisdom... of the Feel... of Failure
-
-**Song #2**
-
-** **The next song is on social anxiety. Brandon explains:
-
-“I wanted to introduce this song I wrote with Amy Specter who was on your podcast on August 5th #152 a month or so ago. It’s called, “Negative Thoughts Shut your Piehole Tonight.” And it’s about social anxiety and the idea that when you’re upset, it’s not the event or the other person who’s “making you” feel upset, it’s your own negative thoughts.
-
-“Where it gets personal for me is that I was bullied in elementary school by a group of my former friends who made up a story that I was gay - as if that's a bad thing - and then yelled things, tried to get in fights with me, etc., for really the majority of the school year. And I got really down and felt ashamed, and didn’t tell my parents or anyone else about it because of that. But what they did, didn’t make me down - it was my negative thoughts. I wasn’t actually gay, but what was important was that I told myself that I was defective, and people didn’t want to be around me.
-
-“The person who I thought was the ringleader was a blonde blue-eyed (as if those are good things) smart, handsome guy who had great social skills and apparent confidence - both seemingly more than I had. In my mind I made him into an evil person just interested in popularity. But he had many good qualities (and was a friend of mine before this). Seeing his good qualities reminds me of the concept of the disarm.
-
-“In this song, the singer is anxious about going to a party. She feels envious of Anna, a woman who’s thin (as if that's a good thing) and gets a lot of attention - both because of our culture’s preoccupation with women being thin and also because she has great social skills. So, she feels bad about herself.
-
-“But then realizes it’s just her negative thoughts and also sees that her negative thoughts and feelings helpful to her, and represent good things about her. Then she works successfully on changing the way she thinks and feels.”
-
-** **Negative Thoughts, Shut Your Piehole Tonight!**
-
-** **by Amy Specter and Brandon Vance**
-
-**Tiny Anna, you’ve been getting me down. But I know it’s not you; it’s the negative thoughts doing their doo-doo. And those negative thoughts I can leave behind. That’s right, you can walk right out of my mind. You can shut your pie-hole, though you’ve given me a lot during my days. But, I don’t need you now; you can get up and walk right out of that door - and shut your pie hole on the way!**
-
- 
-
-You’ve been talking since the dawn’s early light
-
-you’re an expert, attention getter, you’re quite the sight!
-
-Anna please teach me
-
-to talk at a party like the talkin' on the tv screen
-
-Now I’m gonna say something and it may not be polite!
-
-Cause I’ve realized that I’ve got some work to do
-
-But this time I’m not going to shut down and stew.
-
-My negative thoughts are bothering me
-
-much more than Anna Lee
-
-so negative thoughts, shut your pie holes tonight.
-
-Negative thoughts you’ve served me well and
-
-kept me from being in social situation hell
-
-Rejection comfortably kept at bay
-
-I don’t have to put myself out there
-
-I can keep myself at home without judgments to fear
-
-they can let me off the hook
-
-No effort to change, to learn new things or swim in another lane
-
-Negative thoughts you’ve kept me safe
-
-But I’m going to try my mind on a different train
-
-Maybe I don’t need negative thoughts and their kind
-
-to tell me if I can have a good time
-
-I can be myself and go at my own pace
-
-Even with these tiny negative thoughts flapping their tiny lips in my face
-
-Negative thoughts said there’s no room in this world for my kind
-
-well that’s just bullshit created by my negative mind
-
-I laugh about awkward autocorrects, Weird-Al and farting
-
-So why not enjoy, the people, at the party?
-
-So negative thoughts shut your pieholes tonight!
-
-Negative thoughts you’ve served me well
-
-Negative thoughts - farewell!
-
-Negative thoughts shut your pie hole tonight
-
-Tiny Anna will surely get some attention
-
-That may be true
-
-And that doesn’t mean I won’t get affection
-
-But even if I don’t have things to say,
-
-I’ll learn to chit chat the Anna way.
-
-So Negative thoughts shut your pieholes tonight,
-
-Negative thoughts shut your pieholes tonight.
-
-That’s right, negative thoughts shut your pieholes tonight! 
-
-Cause I wanna have some **<u>FUN!!!</u>**
-
-**Song #3**
-
-** **The last song by Brandon and Heather focuses on the “A” of TEAM therapy, formerly called A = Paradoxical Agenda Setting, and now given the simpler name of A = Assessment of Resistance. We address the patient’s resistance in this very crucial and paradoxical part of TEAM-CBT. When we address resistance up front by arguing for the status quo, the patient paradoxically argues for change, and therapy becomes **much** easier. After that point, it’s No Resistance No Cry.
-
-**NO RESISTANCE NO CRY**
-
-** **Lyrics by Amy Specter and Brandon Vance<br /> to the tune of “No Woman No Cry.” by Bob Marley.
-
-No resistance no cry
-
-No resistance no cry
-
-No resistance no cry
-
-No resistance no cry
-
-Next week, Brandon and Heather will return for a second podcast on listening to a very different kind of “music,” the meaning behind the words when people are critical of you. We will discuss and illustrate, once again, the incredibly important Disarming Technique, which is arguably the most important of the Five Secrets of Effective Communication.
-
-**More about Brandon and Heather**
-
-In addition to her brilliant work as a TEAM-CBT psychiatrist and teacher, Heather Clague is a singer and improviser who collaborated in the creation of lyrics for some of Brandon’s songs. She is a member of the performance group, [Berkeley Improv](https://www.facebook.com/pg/BerkeleyPlayers/photos/?ref=page_internal"> The Berkeley Players,</a> and is the director of <a href= "http://www.berkeleyimprov.com), a Bay Area school of improv that offers improv acting classes for adults and youth. Heather says, "Improv is a lot like TEAM CBT - full of laughter and enlightenment. The best moments tend to happen when we throw shame to the wind and let magic arise from the ordinary and let our 'mistakes' become gifts."
-
-Dr. Brandon Vance has a musical group that is connected with the [Justice Arts Collective](http://www.facebook.com/justiceartscollective) at Chabot College in Hayward California. In that group, he works with students to create musical pieces with social justice themes, often in the style of hip hop with Latin beats. Most, if not all of the students have experienced personal trauma and social inequity. Through music, they can share their truths, their hearts and their wealth of experiences with each other and the community, while at the same time working for social change. 
-
-Brandon explains that “we form deep connections with each other, and it’s become something of a family . A couple of years ago, we made [a music video](http://www.justiceartscollective.com/) for our song, ‘From Mt. Tamalpais to Fruitvale Station,’ and actually won first place in the My Hero International Film Festival and in the World Independent Film Festival, as well as awards in many other film festivals.  [Check it out! ](http://www.justiceartscollective.com/)We’re now working on a new video about immigration with our song, 'Bring Down the Wall.'"
-
-Brandon has also worked with Amy Specter in the creation of a company called [Gameful Mind](http://www.gamefulmind.com). He explains that “we wanted playful ways to support adults and kids in developing skills to be and stay emotionally well. So, we made the game TuneIN TuneUP, as well as some other games and playful shirts and such.”
-
-David and Rhonda
-
- 
-
- 
-
-
-
-Mon, 30 Sep 2019 08:00:00 +0000
-
-### [161: Listening to a Different Kind of Music](http://feelinggood.libsyn.com/161-listening-to-a-different-kind-of-music)
-
-
-### Hearing the Music Behind the Words
-
-This podcast again features the music of two beloved colleagues we introduced last week, Brandon Vance, MD and Heather Clague MD. We will be listening to music again this week, but it will be, for the most part, a different kind of music—it’s the music behind the words when someone criticizes you. We will be focusing on the most challenging and important of the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf), the Disarming Technique. This week, Brandon and Heather will help Rhonda and David illustrate how to use this technique when you’re under the fire of criticism. But in addition, Brandon and Heather will also sing one more of their extremely beautiful and fun songs, appropriately entitled, “The Five Secrets!”
-When you use the Disarming Technique, you find the truth in a criticism, even if the criticism seems untrue, unfair, or exaggerated. This technique is based on [the Law of Opposites.](https://feelinggood.com/wp-content/uploads/2017/11/Law-of-Opposites.pdf) The essence of the Law of Opposites is that if you genuinely and immediately agree with the criticism that seems untrue, you will put the lie to it, and the critic will stop believing the criticism. This is a remarkable phenomenon that can be enormously helpful in conflicts with patients (if you're a therapist) as well as friends, colleagues, and loved ones. However, it is challenging, because you have to be able to really **listen** and "hear" the music behind the other person's words.
-If you use the Disarming Technique, or any of the Five Secrets, in a mechanical way, it will backfire. And I (David) have noticed that even trained mental health professionals can have a tremendous difficulties learning to use the Disarming Technique.
-Here's an example of POOR technique. Although this is a therapy example, it is equally valid for conflicts between friends and loved ones.
-Let's say that you're a therapist, and your patient confronts you by saying, "This is the second week in a row that you've been late for my session."  
-I've seen therapists respond like this: "You're right. I have had emergencies which made me late for your sessions last week and today." 
-Is this a good example of the Disarming Technique?
-NO! Can you see why?
-It's because this therapist is agreeing with the criticism in a literal way, and not hearing the "music" behind the words. What is this patient really saying? He's probably saying that he feels a lack of caring from his therapist, and this may be one of his core conflicts,  thinking that the people he cares about never care about him. So the therapist's "mechanical" answer misses the boat.
-Here's an improved response that addresses what the patient **really** said. After each sentence, I'll put the name(s) of the technique(s) I used in the sentence.
-"Jim, it's painful to hear you say that, because you're right. ("I Feel" Statement; Disarming Technique) I **was** late and I let you down, and I feel embarrassed. (Disarming; "I Feel" Statement.) I wouldn't be surprised if you're feeling hurt and  annoyed, and maybe even a bit angry with me, and for good reason. (Feeling Empathy) This is particularly uncomfortable, because you've told me that everyone you care about seems to let you down. ("I Feel" Statement; Thought and Feeling Empathy) I care about you and have tremendous respect for you.  (Stroking) Although I was delayed by emergencies last week and this week, the fact is, you had to wait. (Disarming) I will try to correct the problem of getting emergency calls when I'm in the clinic, which definitely is irritating and unfair to you, and I'll gladly offer a free session to compensate the fact that you had to wait. (Disarming Technique, Feeling Empathy) I want to know more about how you've been feeling, and if there have been other times when I've let you down or perhaps said things that seemed uncaring? (Inquiry)"
-Can you see that this response addresses the music, or feeling, or message **behind** the words, and not just the words?
-And can you see the Law of Opposites in action? When this therapist agrees that he has let the patient down, and shows some humility, the patient will probably suddenly feel very cared about.
-In today's podcast, Brandon, Heather, Rhonda and David play a kind of Disarming Round Robin, taking turns responding to unexpected criticisms, using the Disarming Technique as well as any other communication techniques that may be needed. For example, one of the therapists is attacked by a patient who is a person of color who calls him "one of the rich white privileged people." 
-You will also hear the immediate grading of each response--was it an A, a B, a C, or a D--along with what worked and what didn't work, followed in some cases by a second try. If you want to learn the Five Secrets, and especially the Disarming Technique, this type of practice will be a must! You can practice with a colleague, or with a friend. But be prepared to check your ego at the door so you can learn from failure, because it will be very challenging for you at first!
-
-A neighbor who was helping with the recording, Dave Fribush, said that he really liked the podcast, but was disappointed it was so short--he wanted to hear more examples. So Rhonda and I recorded a  brief supplement two days later, which we will edit in. 
-
-Here are the additional criticisms we practiced:
-
-
-* **Angry friend** who feels jealous / betrayed and says: You were hitting on my girlfriend last night!
-* **Irate mother, **who feels neglected / used, and says: Forget it! I’ll just do it myself!
-* **Hurt colleague, **who says: You didn’t support me during the meeting!
-* **Indignant patient,** who tells her therapist: You just called me Jane, but my name is Lisa!
-If you are serious about learning the Disarming Technique, as well as the other Secrets of Effective Communication, I would strongly urge you to study this list of [Common Five Secrets Errors](https://feelinggood.com/wp-content/uploads/2019/09/Five-Secrets-Common-Errors-v-5.pdf) in addition to practicing with a friend. I know I'm asking a lot from you, but we are giving you, or hoping to give you, something precious! 
-
-And here are the words to today's featured TEAM-CBT song! 
-
-**She Used the Five Secrets**
-
-**Lyrics by Heather Clague<br />**to the tune of Blue Velvet by Bernie Wayne and Lee Morris.**
-
-She used the Five… Secrets
-
-Madder than angry, oh was I
-
-Pissed and unhappy, I could cry
-
-At the start
-
-She used the Five Secrets
-
-She spoke my words to ‘ empathize
-
-She ‘ guessed my feelings, oh she tried 
-
-From the heart
-
-How could I stay harmed
-
-When she so skillfully disarmed
-
-How could I want to fight
-
-When she asked, did I get it right with
-
-With my Five Secrets
-
-she told me plainly how she felt
-
-Her stroking made my whole heart melt
-
-Into tears
-
-And I can still hear her Five Secrets
-
-In my ears
-
-The Five secrets
-
-Now I have learned to use them too
-
-To give up blame and follow through
-
-And face my fears
-
-And I practice my Five Secrets
-
-With my dears
-
-I love the Five Secrets!
-
-Conflict fuels intimacy
-
-Not about me but about we
-
-It’s more sincere!
-
-So with the five secrets
-
-Let love appear!** **
-
-**More about Brandon and Heather**
-
-Brandon Vance, MD and Heather Clague, MD are both psychiatrists and certified TEAM-CBT therapists. They practice in Oakland, California.
-
-In addition to her brilliant work as a TEAM-CBT psychiatrist and teacher, Heather is a singer and improviser who collaborated in the creation of lyrics for some of Brandon’s songs. She is a member of the performance group, [Berkeley Improv](https://www.facebook.com/pg/BerkeleyPlayers/photos/?ref=page_internal"> The Berkeley Players,</a> and is the director of <a href= "http://www.berkeleyimprov.com), a Bay Area school of improv that offers improv acting classes for adults and youth. Heather says, "Improv is a lot like TEAM CBT - full of laughter and enlightenment.  The best moments tend to happen when we throw shame to the wind and let magic arise from the ordinary and let our 'mistakes' become gifts."
-
-In addition to his brilliant work as a TEAM-CBT psychiatrist and teacher, Brandon has a musical group that is connected with the [Justice Arts Collective](http://www.facebook.com/justiceartscollective) at Chabot College in Hayward California. In that group, he works with students to create musical pieces with social justice themes, often in the style of hip hop with Latin beats. Most, if not all of the students have experienced personal trauma and social inequity. Through music, they can share their truths, their hearts and their wealth of experiences with each other and the community, while at the same time working for social change. 
-
-Brandon explains that “we form deep connections with each other, and it’s become something of a family . A couple of years ago, we made [a music video](http://www.justiceartscollective.com/) for our song, ‘From Mt. Tamalpais to Fruitvale Station,’ and actually won first place in the My Hero International Film Festival and in the World Independent Film Festival, as well as awards in many other film festivals.  [Check it out! ](http://www.justiceartscollective.com/)We’re now working on a new video about immigration with our song, 'Bring Down the Wall.'"
-
-Brandon has also worked with Amy Specter in the creation of a company called [Gameful Mind](http://www.gamefulmind.com). He explains that “we wanted playful ways to support adults and kids in developing skills to be and stay emotionally well. So, we made the game TuneIN TuneUP, as well as some other games and playful shirts and such.”
-
-David and Rhonda
-
-
-
-Mon, 07 Oct 2019 08:00:00 +0000
-
 ### [162: HIgh-Speed Cure for OCD (Obsessive Compulsive Disorder)](http://feelinggood.libsyn.com/136-high-speed-cure-for-ocd-obsessive-compulsive-disorder)
+Mon, 14 Oct 2019 08:00:00 +0000
 
 ### “Yikes! I might get contaminated!” ### The Treatment of Sara Today we are joined by a woman named Sara, who will be featured in one of the chapters from my new book, **Feeling Great**.
-Rhonda begins today’s podcast by reading two heart-warming endorsements from podcast fans. Then we did a brief overview of OCD. OCD consists of two components, obsessions and compulsions. The obsessions are intrusive, anxiety provoking thoughts, like “what if I forgot to turn off the burners on the stove.” Compulsions are rituals that temporarily relieve the anxiety, such as going back into the kitchen repeatedly to make sure that the burners really are turned off. This problem can become more and more severe until the obsessive thoughts and compulsive rituals consume massive amounts of the patient’s time and become crippling.
-You are probably aware that OCD plagued the life of the billionaire playboy, Howard Hughes, featured in the recent film, “The Aviator.” During the last years of his life, he became totally consumed by concerns about germs, and ended up isolated in the penthouse suite at the top of a hotel in Las Vegas. According to a “psychological autopsy” ([https://www.apa.org/monitor/julaug05/hughes](https://www.apa.org/monitor/julaug05/hughes)) published by the American Psychological Association, Hughes lay naked in bed in darkened hotel rooms in what he considered a germ-free zone. He even wore tissue boxes on his feet to protect them, and burned his clothing if someone near him became ill.
+
+> You are probably aware that OCD plagued the life of the billionaire playboy, Howard Hughes, featured in the recent film, “The Aviator.” During the last years of his life, he became totally consumed by concerns about germs, and ended up isolated in the penthouse suite at the top of a hotel in Las Vegas. According to a “psychological autopsy” ([https://www.apa.org/monitor/julaug05/hughes](https://www.apa.org/monitor/julaug05/hughes)) published by the American Psychological Association, Hughes lay naked in bed in darkened hotel rooms in what he considered a germ-free zone. He even wore tissue boxes on his feet to protect them, and burned his clothing if someone near him became ill.
+
 Sara, today’s guest, was a victim of the same type of OCD. She describes how her intense fears of germs and contamination came on more than 20 years ago, and the devastating impact of the OCD on her as well as her relationships with friends and family. She also describes her shame about her rituals of constantly washing her hands and desperately trying to avoid contamination.
-Sara also describes, in vivid detail, her remarkable and inspiring five minute “cure” one evening at David’s Tuesday evening training group at Stanford earlier this year. She had courageously volunteered to be the patient so David could to demonstrate TEAM-CBT with a problem generally thought to be exceptionally challenging and refractory. And although Sara’s dramatic and mind-blowing recovery only took about five minutes, the treatment required a lifetime of courage!
-Fortunately, one of my students had his cell phone in hand, and made a brief video of the last phase of her treatment at the Tuesday group, which involved putting her hands into a slimy, dirty garbage can right outside the front door of our Behavioral Sciences Building at Stanford and then rubbing her fingers on her face. Check it out! (link)
-And yes, the effects DID last! Her treatment was many months ago, and she’s been a totally changed person!
 
-Following the podcast, Rhonda and I got two beautiful emails from Sara:
 
-Wow! What a beautiful day! Thank you, Rhonda and David for the amazing opportunity to share my story! I feel very selfish but I enjoyed every minute of it. You both made me feel so comfortable and welcome. You two are so incredibly AWESOME! You make a superb team! :)
+> Wow! What a beautiful day! Thank you, Rhonda and David for the amazing opportunity to share my story! I feel very selfish but I enjoyed every minute of it. You both made me feel so comfortable and welcome. You two are so incredibly AWESOME! You make a superb team! :)
 
-And here is the second wonderful email:
 
-David, I hope you are feeling better and that you recover from your cold soon, very soon.
-
-I wanted to share an afterthought I had a couple of days after we recorded the podcast. I wish I had thought about it before the podcast because this was so much part of my OCD.
-
-Anyway, for years (many years) I bought sanitized hand wipes and carried them in my purse, car, briefcase, you name it—I had hand wipes everywhere. I was known for having wipes with me all the time.
-
-Not long after the magical treatment of my OCD, I was at the grocery store and proceeded to add three packets of sanitized hand wipes to my basket and I burst into laughter, even though I was by myself! I, then, put them back on the shelf, as I told myself, “I don’t need these anymore!”
-
-Since then, I no longer carry them NOR NEED THEM!
-
-Funny enough, I have been approached on different occasions by family members and friends saying something like, “You always have wipes, can we have one, please?” I have to say, “Sorry, I don’t carry wipes anymore since I’ve been cured!”
-
-What a wonderful feeling that is—not to feel dependent nor a slave to the sink and hand wipes. Not to mention, all the money I am saving by not buying wipes!!!
-
-Anyway, I thought I should share that with you and I’m sad I didn’t remember it until after the recording of the podcast.
-
-Once again, thank you both for the amazing recording, all your support, and all you do for our Tuesday training group and humanity in general!
-
-With Immense Gratitude,
-
-Sara
-
-Sara Shane is a certified TEAM-CBT therapist practicing in the central valley of California (Stockton). She is multi-lingual and offers intensives—extended, single-session treatment of depression and all of the anxiety disorders. And, here’s something fantastic—although Sara is a superb therapist, her fees are modest, thus bucking the current trend of charging outrageous fees for psychotherapy in California. This is something I really admire and appreciate!
+>Sara Shane is a certified TEAM-CBT therapist practicing in the central valley of California (Stockton). She is multi-lingual and offers intensives—extended, single-session treatment of depression and all of the anxiety disorders. And, here’s something fantastic—although Sara is a superb therapist, her fees are modest, thus bucking the current trend of charging outrageous fees for psychotherapy in California. This is something I really admire and appreciate!
 
 If you would like to contact Sara, you can reach her at: 209-476-8867.
 
-David and Rhonda
-
-
-
-Mon, 14 Oct 2019 08:00:00 +0000
-
 ### [163: Ask David: Anxiety, Dreams, Cyclical Negative Thoughts, Secrets of Selling, Exposure, and more](http://feelinggood.libsyn.com/163-ask-david-anxiety-dreams-cyclical-negative-thoughts-secrets-of-selling-exposure-and-more)
 
-<h1 class="entry-title"><span style="font-size: 14pt;">163: Ask David: Anxiety, Dreams, Cyclical Negative Thoughts, Secrets of Selling, Exposure, and more</span></h1> <div class="entry-content"> <h4>Can you treat anxiety without meds?</h4> <h4>How do you interpret dreams?</h4> <h4>Are negative thoughts cyclical?</h4> <h4>How can I get over anxiety when selling?</h4> <h4>How does exposure work?</h4> <h4>Will you teach on the East Coast again?</h4> Hi! We’ve had tons of great questions from listeners like you. Here’s the first:
-**Question #1. TREATING ANXIETY WITHOUT MEDICATIONS**
-Hi Dr. Burns,
-I would love to talk to you!!!
-I have been going to a wonderful counselor for several years, and he is the one who recommended your book. My question is how can you overcome anxiety without taking medicine?
-I have been on a very low dose medicine for years and would love to discontinue but when I try the anxiety seems to come back.
-Thank you.
-Lisa
-Hi Lisa,
-Thank you for your email! This is one of my favorite topics, since I’ve personally had at least 17 different anxiety disorders that I’ve had to overcome. That’s why I love treating anxiety. Whatever you’ve had, I can say, “I’ve had that too, and I know how it sucks! And I can put you on the road to recovery, too!”
-Did you read **When Panic Attacks**, or one of the earlier books? The written exercises would be the way to go, I think.
-You will find more than 40 methods in that book. Write back if you have questions after reading it. Focus on one specific moment when you are anxious, and do a Daily Mood Log, as illustrated in Chapter 3.
-You can also listen to the free Feeling Good Podcasts on anxiety. Go to my website, FeelingGood.com, and click on the Podcast tab. There, you’ll find a list of all the podcasts, with links. In the right hand panel of every page, you’ll find the search function. You can type in “anxiety,” or “social anxiety,” and so forth, and all the relevant podcasts and blogs will pop right up. You can also sign up in that same right-hand panel of every page so you’ll receive all the new podcasts, along with the show notes.
-In addition, withdrawal effects are pretty much inevitable when going off of benzodiazepines, if that is the type of medication you are taking. These are the drugs most often prescribed for anxiety, like Valium, Librium, Ativan, Xanax, and so forth. Typically, the withdrawal, which typically involves insomnia and increased anxiety, take several weeks to wear off.
-Your medical doctor can guide you in this. I cannot advise you about medications in this forum, so make sure you check with your doctor!
-David
-**Question #2. How can you interpret dreams?**
-Hello, Dr. Burns.
-
-I am terrified that this may be the most boring question you have ever received, but, I’ll press on none the less.
-
-I often experience very vivid dreams after listening to your podcasts. In fact, I recently dozed off after listening to one of your podcasts on procrastination (#75) and forgot to turn off my phone. In my dream I was in my childhood house and could hear you talking away in some far corner of the house and I was really getting quite annoyed and angry.
-
-I really wanted to find you to tell you to shut up, but I couldn’t get the words out.
-
-When I awoke, podcast #77 was playing, which seems to explain some of my unconscious hostility. I struggle with most of my relationships and don’t really want to deal with all the hard work I have to do to improve them.
-
-So, there you have it!
-
-Thanks for listening to me and all your Herculean efforts on behalf of all those in the struggle to grow.
-
-Mike
-
-Hi Mike,
-
-I explain how dreams function, and give an example with my dream that I had a broken jaw!
-
-**Question #3. Are Negative Thoughts cyclical?**
-
-David, I have a question about our strong attraction or inclination to negative thoughts.
-
-Are our psychological processes cyclical? People seem to recycle the same negative thoughts for years. Even if we produce a strong alternative thought or reattribution it may not be a default choice the next time. How can we make the alternative/ positive thoughts a conscious choice?
-
-Thanks,
-
-Rajesh
-
-Hi Rajesh:
-
-Negative Thoughts are not cyclical for the most part, but are an inherent part of our human nature. The podcast on fractal psychotherapy might be useful, since the same Negative Thoughts will tend to come back over and over throughout your life. And once you have learned how to combat those thoughts, you can use the same techniques to smash the thoughts whenever they pop back into your mind.
-
-The written exercises I describe in my books, like the Daily Mood Log, are extremely helpful, even mandatory, in building new brain networks and strengthening them through repeated practice.
-
-Bipolar manic-depressive illness is a little different, and it can be quick cyclical. (David will briefly explain this.)
-
-Thanks Rajesh for yet another great question!
-
-david
-
-**Question #4. I’m in sales. How do I combat my Negative Thoughts about each person I approach?**
-
-Hi David,
-
-I have been struggling with anxiety for the last 18 months and recently faced up to the fact I have also been suffering from depression. And then I discovered your podcasts.
-
-I have been spending a lot of time on the episodes I believe I can benefit from the most. I have found your solutions to be the most beneficial I have come across. Thank you for sharing your ideas and techniques with all of us!
-
-A couple of questions—How would you advise constructing a work day to reduce anxiety? I work in sales and feel anxious before every phone call or visit I encounter, and the anxiety can be for reasons that seem to be related solely to each sales encounter on individual basis! And my anxiety will grow as the day goes on.
-
-My second point would be, would there be a benefit in monitoring positive thoughts and feelings throughout the day, like happiness and hopefulness, rather than negative feelings?
-
-Hi Rudi,
-
-I’ve done a lot of sales work, including door-to-door sales when I was young. When I was 8 years old, I sold show tickets door to door. When I was a teenager, I sold Fiesta Chips, Cosmo’s Cock Roach Power, tick powder for dogs, and For Econoline Vans door to door in Phoenix. So, I feel a soft spot in my heart for everyone involved in sales! In fact, I’m still involved in sales! But these days I’m selling happiness, self-esteem, and intimacy.
-
-I think it could be useful to do a written Daily Mood Log on the anxiety you feel before one of your calls. I think you will find there are certain themes that are common to each call, such as fears of rejection, disapproval, or failure. Once you’ve dealt with these fears successfully, I think they will help in all of your sales encounters. If you send me a partially filled out Daily Mood Log, perhaps Rhonda and I could provide more specific tips on how to crush your Negative Thoughts. If you listen to Rhonda’s work on performance anxiety, you may find it extremely helpful.
-
-In addition, the Five Secrets of Effective Communication are the keys to successful sales. I used to think that you had to sell yourself, or your product, which is rarely true. I learned that the key is to form a warm relationship with your customers. David will explain what he learned from his mother, who sold women’s clothing part-time at a department store in Phoenix.
-
-Thanks, Rudi, I hope to hear more.
-
-**Question #4. Why and how does exposure for anxiety work?**
-
-Hi Dr. Burns,
-
-I am a big fan and believe that you are the greatest living psychologist of our time. I have seen you in person and hear your recent PESI presentation (link).
-
-Quick question, when exposure is used to get rid of anxiety, what do you think is the mechanism in the brain? It works paradoxically, instead of strengthening a neuro-network it extinguishes it. Any ideas how.
-
-Thanks for your time, and again I have learned so much from you in my over 30-year career, thank you for that also.
-
-Sincerely, Dr. Mark
-
-Hi Dr. Mark,
-
-With your permission, will include this on an upcoming Ask David on my Feeling Good Podcast, but I think you discover a couple things during exposure:
-
-
-* When you stop running away and confront the monster, you discover that the monster has no teeth, so you go into enlightenment. This is the basis of Buddhism and the teachings in the Tibetan book of the dead.
-* During exposure, you also discover that after a while the anxiety just kind of wears out, dwindles, and disappears. The brain simply cannot continue creating anxiety for prolonged periods of time, especially when you are doing everything you can to make it as intense as possible.
-* You discover that you can, in fact, endure the anxiety and survive, and that you do not have to “escape” from the feeling of anxiety via avoidance.
-One other thing that is important is that I treat anxiety with four models, not one: 1. The Motivational Model; 2. The Hidden Emotion model; 3. The Exposure Model; and 4. The Cognitive Model. All play vitally important and unique roles in the treatment of anxiety. Exposure alone is NOT a treatment for anxiety, just one tool among many that can be helpful, and often incredibly helpful, as you’ll see in the upcoming podcast on the treatment of Sara, a woman struggling with severe OCD for more than 20 years.
-
-Great question! Hope to catch you in one of my upcoming in-person / online workshops!
-
-Thanks, David
-
-**Mark’s reply and a brief final question**
-
-Hi Dr. Burns,
-
-Yes, of course you have my permission to use my question! Also, I do understand your impressive approach to treatment (not just exposure), and again it is genius. I also love that you see the connection between Buddhism and cognitive restructuring, where as Dr. Beck only went as far back as Socrates and the Greek Stoic philosophers. I don’t know if you ever read the Dhammapada (best translation I found is Eknath Easwaran) as it clearly states that our life is shaped by our mind, and that our feelings follow our thoughts just like a cart follows the ox that pulls it.
-
-Thanks again! Will you be coming to the East coast again soon?
-
-Hi again, Mark,
-
-Yes, I’ll be coming to Atlanta for a four-day intensive in November! Check my workshop tab at [https://feelinggood.com/workshops/](http://www.feelinggood.com/">www.feelinggood.com</a> for more information. (<a href= "https://feelinggood.com/workshops/))
-
-david
-
-David D. Burns, M.D. & Rhonda Barovsky, Psy.D.
-
- 
-
- 
-
-</div>
-
 Mon, 21 Oct 2019 08:00:00 +0000
+
+* How do you interpret dreams?
+* Are negative thoughts cyclical?
+* How can I get over anxiety when selling?
+* How does exposure work?
+* Will you teach on the East Coast again?
 
 ### [164: How to HELP, and how NOT to Help!](http://feelinggood.libsyn.com/164-how-to-help-and-how-not-to-help)
 

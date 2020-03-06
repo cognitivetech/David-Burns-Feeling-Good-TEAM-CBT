@@ -8,12 +8,6 @@
 
 Mon, 31 Jul 2017 05:00:00 +0000
 
-### [019: Ask David — The Defiant Child: A Secret All Parents Should Know](http://feelinggood.libsyn.com/019-ask-david-the-defiant-child-a-secret-all-parents-should-know)
-
-> Can the EAR techniques help a listener deal more effectively with a defiant, oppositional child. Dr. Burns reveals a fantastically helpful secret that he and his wife stumbled across in raising their own children. If you have ever struggled in your attempts to deal with an oppositional child or adolescent, you will find this podcast enlightening!
-
-Mon, 16 Jan 2017 06:00:00 +0000
-
 ### [031: Live Session (Mark) — Agenda Setting Phase (Part 3)](http://feelinggood.libsyn.com/031-live-session-mark-agenda-setting-phase-part-3)
 
 > TEAM Therapists use a number of **Paradoxical Agenda Setting (PAS)** techniques designed to bring the patient’s subconscious resistance to conscious awareness. Then we melt the resistance away **before** attempting to change the way the patient is thinking and feeling. 

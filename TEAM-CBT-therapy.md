@@ -355,3 +355,200 @@ Mon, 17 Jun 2019 08:00:00 +0000
 
 > Mike, Fabrice and I also discuss topics like religious scrupulosity, religious obsessions, cognitive distortions (John 8:32: “The truth will set you free”), and the so-called “dark night of the soul” described by Christian and Buddhist mystics. We also talk about the spiritual and psychological aspects of enlightenment (e.g. salvation), Should Statements, the Disarming Technique, forgiveness, repentance, the death of the ego, pride vs. humility, and more.
 
+### [160: Listening to the Music of TEAM](http://feelinggood.libsyn.com/160-listening-to-the-music-of-team)
+
+Mon, 30 Sep 2019 08:00:00 +0000
+
+> This podcast features the music of two beloved colleagues, Brandon Vance, MD and Heather Clague MD. Brandon and Heather are both certified TEAM-CBT psychiatrists practicing in Oakland, California. Brandon is a brilliant multi-instrumentalist and singer / song writer / performer who has transformed his vision of TEAM-CBT into music! Heather is brilliant and fun improv acting teacher and performer who is quick in her mind and on her feet! Brandon and Heather have performed at David’s annual South San Francisco psychotherapy intensive for the past several years, and we are delighted to bring them to you up close and personal today!
+
+#### Song #1
+** **Heather and Brandon begin with music about a familiar but painful theme for nearly all of us—the feeling of failure, and the belief that we are somehow defective or just “not good enough.” Brandon and Heather are extremely talented and successful individuals, but they are not immune from suffering. During the podcast, they describe their own painful personal experiences with depression, anxiety, shame, and defectiveness.
+
+##### The Feel of Failure
+*Lyrics by Heather Clague and Brandon Vance* to the tune of “The Sound of Silence” by Paul Simon
+
+Hello failure my old friend
+I’ve come to talk with you again
+Because my ego softly creeping
+Infects my thoughts while I am preaching
+And that vision that was planted in my brain
+Still remains; becomes the Feel of Failure
+ 
+Fool, said I, you are so lame
+Done something wrong to feel this shame
+Perfect is the way that you should be
+Self-blame coming like a tsunami
+Negative thoughts one hundred - percent on my DML
+I was in hell
+Suffered the Feel of Failure
+ 
+My self-esteem had turned to shit
+I needed the magic button hit
+Something told me my feelings weren’t lame
+
+Began to do a positive reframe
+Maybe my feelings say something about me that is pretty fly
+I set the bar high
+So I have a Feel of Failure
+
+I saw that I was not alone
+Dared go beyond my comfort zone
+I took pride in my humility
+Welcomed my faults as my humanity
+
+And in a moment of enlightenment I cried and then I laughed
+I’d finally grasped
+The wisdom... of the Feel... of Failure
+
+#### **Song #2**
+
+“In this song, the singer is anxious about going to a party. She feels envious of Anna, a woman who’s thin (as if that's a good thing) and gets a lot of attention - both because of our culture’s preoccupation with women being thin and also because she has great social skills. So, she feels bad about herself.
+
+“But then realizes it’s just her negative thoughts and also sees that her negative thoughts and feelings helpful to her, and represent good things about her. Then she works successfully on changing the way she thinks and feels.”
+
+##### Negative Thoughts, Shut Your Piehole Tonight!
+
+**by Amy Specter and Brandon Vance**
+
+> **Tiny Anna, you’ve been getting me down. But I know it’s not you; it’s the negative thoughts doing their doo-doo. And those negative thoughts I can leave behind. That’s right, you can walk right out of my mind. You can shut your pie-hole, though you’ve given me a lot during my days. But, I don’t need you now; you can get up and walk right out of that door - and shut your pie hole on the way!**
+
+You’ve been talking since the dawn’s early light
+you’re an expert, attention getter, you’re quite the sight!
+Anna please teach me
+to talk at a party like the talkin' on the tv screen
+
+Now I’m gonna say something and it may not be polite!
+Cause I’ve realized that I’ve got some work to do
+But this time I’m not going to shut down and stew.
+
+My negative thoughts are bothering me
+much more than Anna Lee
+so negative thoughts, shut your pie holes tonight.
+Negative thoughts you’ve served me well and
+kept me from being in social situation hell
+Rejection comfortably kept at bay
+I don’t have to put myself out there
+I can keep myself at home without judgments to fear
+they can let me off the hook
+No effort to change, to learn new things or swim in another lane
+
+Negative thoughts you’ve kept me safe
+But I’m going to try my mind on a different train
+Maybe I don’t need negative thoughts and their kind
+To tell me if I can have a good time
+I can be myself and go at my own pace
+Even with these tiny negative thoughts flapping their tiny lips in my face
+
+Negative thoughts said there’s no room in this world for my kind
+well that’s just bullshit created by my negative mind
+I laugh about awkward autocorrects, Weird-Al and farting
+So why not enjoy, the people, at the party?
+
+So negative thoughts shut your pieholes tonight!
+Negative thoughts you’ve served me well
+Negative thoughts - farewell!
+Negative thoughts shut your pie hole tonight
+
+Tiny Anna will surely get some attention
+That may be true
+And that doesn’t mean I won’t get affection
+But even if I don’t have things to say,
+I’ll learn to chit chat the Anna way.
+So Negative thoughts shut your pieholes tonight,
+
+Negative thoughts shut your pieholes tonight.
+That’s right, negative thoughts shut your pieholes tonight! 
+Cause I wanna have some **<u>FUN!!!</u>**
+
+#### **Song #3**
+
+> **The last song by Brandon and Heather focuses on the “A” of TEAM therapy, formerly called A = Paradoxical Agenda Setting, and now given the simpler name of A = Assessment of Resistance. We address the patient’s resistance in this very crucial and paradoxical part of TEAM-CBT. When we address resistance up front by arguing for the status quo, the patient paradoxically argues for change, and therapy becomes **much** easier. After that point, it’s No Resistance No Cry.
+
+##### NO RESISTANCE NO CRY
+
+** **Lyrics by Amy Specter and Brandon Vance<br /> to the tune of “No Woman No Cry.” by Bob Marley.
+
+No resistance no cry
+No resistance no cry
+No resistance no cry
+No resistance no cry
+
+---
+
+> In addition to her brilliant work as a TEAM-CBT psychiatrist and teacher, Heather Clague is a singer and improviser who collaborated in the creation of lyrics for some of Brandon’s songs. She is a member of the performance group, [The Berkeley Players](https://www.facebook.com/pg/BerkeleyPlayers/photos/?ref=page_internal), and is the director of [Berkeley Improv](http://www.berkeleyimprov.com), a Bay Area school of improv that offers improv acting classes for adults and youth. 
+
+> Dr. Brandon Vance has a musical group that is connected with the [Justice Arts Collective](http://www.facebook.com/justiceartscollective) at Chabot College in Hayward California. In that group, he works with students to create musical pieces with social justice themes, often in the style of hip hop with Latin beats. Most, if not all of the students have experienced personal trauma and social inequity. Through music, they can share their truths, their hearts and their wealth of experiences with each other and the community, while at the same time working for social change. 
+
+> Brandon explains that “we form deep connections with each other, and it’s become something of a family . A couple of years ago, we made [a music video](http://www.justiceartscollective.com/) for our song, ‘From Mt. Tamalpais to Fruitvale Station,’ and actually won first place in the My Hero International Film Festival and in the World Independent Film Festival, as well as awards in many other film festivals.  [Justice Arts Collective](http://www.justiceartscollective.com/)
+
+Brandon has also worked with Amy Specter in the creation of a company called [Gameful Mind](http://www.gamefulmind.com). He explains that “we wanted playful ways to support adults and kids in developing skills to be and stay emotionally well. So, we made the game TuneIN TuneUP, as well as some other games and playful shirts and such.”
+
+### [161: Listening to a Different Kind of Music](http://feelinggood.libsyn.com/161-listening-to-a-different-kind-of-music)
+
+Mon, 07 Oct 2019 08:00:00 +0000
+
+#### Hearing the Music Behind the Words
+
+This podcast again features the music of two beloved colleagues we introduced last week, Brandon Vance, MD and Heather Clague MD. We will be listening to music again this week, but it will be, for the most part, a different kind of music—it’s the music behind the words when someone criticizes you. 
+
+We will be focusing on the most challenging and important of the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf), the Disarming Technique. 
+
+This week, Brandon and Heather will help Rhonda and David illustrate how to use this technique when you’re under the fire of criticism. But in addition, Brandon and Heather will also sing one more of their extremely beautiful and fun songs, appropriately entitled, “The Five Secrets!”
+
+When you use the Disarming Technique, you find the truth in a criticism, even if the criticism seems untrue, unfair, or exaggerated. This technique is based on [the Law of Opposites](https://feelinggood.com/wp-content/uploads/2017/11/Law-of-Opposites.pdf). 
+
+Here are the additional criticisms we practiced:
+
+* **Angry friend** who feels jealous / betrayed and says: You were hitting on my girlfriend last night!
+* **Irate mother, **who feels neglected / used, and says: Forget it! I’ll just do it myself!
+* **Hurt colleague, **who says: You didn’t support me during the meeting!
+* **Indignant patient,** who tells her therapist: You just called me Jane, but my name is Lisa!
+
+> If you are serious about learning the Disarming Technique, as well as the other Secrets of Effective Communication, I would strongly urge you to study this list of [Common Five Secrets Errors](https://feelinggood.com/wp-content/uploads/2019/09/Five-Secrets-Common-Errors-v-5.pdf) in addition to practicing with a friend. I know I'm asking a lot from you, but we are giving you, or hoping to give you, something precious! 
+
+And here are the words to today's featured TEAM-CBT song! 
+
+**She Used the Five Secrets**
+
+**Lyrics by Heather Clague<br />**to the tune of Blue Velvet by Bernie Wayne and Lee Morris.**
+
+She used the Five… Secrets
+Madder than angry, oh was I
+Pissed and unhappy, I could cry
+
+At the start
+She used the Five Secrets
+She spoke my words to ‘ empathize
+She ‘ guessed my feelings, oh she tried 
+
+From the heart
+How could I stay harmed
+When she so skillfully disarmed
+How could I want to fight
+When she asked, did I get it right with
+With my Five Secrets
+
+she told me plainly how she felt
+Her stroking made my whole heart melt
+Into tears
+And I can still hear her Five Secrets
+In my ears
+
+The Five secrets
+Now I have learned to use them too
+To give up blame and follow through
+And face my fears
+And I practice my Five Secrets
+With my dears
+I love the Five Secrets!
+Conflict fuels intimacy
+
+Not about me but about we
+It’s more sincere!
+So with the five secrets
+Let love appear!** **
+
+**More about Brandon and Heather**
+
+Brandon Vance, MD and Heather Clague, MD are both psychiatrists and certified TEAM-CBT therapists. They practice in Oakland, California.
+

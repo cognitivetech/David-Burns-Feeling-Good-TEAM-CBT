@@ -145,3 +145,33 @@ David and Rhonda
 
 
 Mon, 10 Jun 2019 08:00:00 +0000
+
+
+### [154: Ask David - Relationship Problems: What can you do when people "ghost" you? What can I do when my wife doesn't want sex? And more!](http://feelinggood.libsyn.com/154-ask-david-relationship-problems-what-can-you-do-when-people-ghost-you-what-can-i-do-when-my-wife-doesnt-want-sex-and-more)
+
+Mon, 19 Aug 2019 08:00:00 +0000
+
+**Ask David Five Secrets Relationship Questions**
+
+> **Kate** asks: I love listening to your podcasts and am currently reading my way through your book, **Feeling Good**. I appreciate that you have written and spoken about relationship problems at length, but in what I have read and heard so far I do not see how this can apply to the current climate of casual dating and hook up culture which is fueled by apps such as Tinder.
+
+> I think this may be a significant problem for many of your listeners, and would greatly appreciate your thoughts, as well as any practical steps on how to date in today's world.
+
+> **Eli** asks: For some reason, when it comes to sex, it seems that I have a lot of self-worth wrapped up in my sex drive. I’m realizing when my wife and I have sex I feel like I’m on top of the world afterwards. I feel so positive the following few days and I feel mentally and emotionally healthy. But it’s devastatingly real that the reverse is true as well... when we don’t have sex (and particularly when I reach out and she’s not in the mood) and when a week or so passes that we don’t have sex, I find myself feeling very insecure. I feel ugly, unlovable and generally less valuable as a person.
+
+> **Susan** asks: You seem like a good person to ask this question partly because you are a man. Someone I know, I won’t say whom, told me he felt emasculated when I asked him to take my car to the gas station to get the wipers replaced.
+
+> To me “emasculated“ is more of a concept or a thought. I will not get into toxic masculinity and the patriarchy, but I am curious what you think. By the way, this person and I have benefited a lot from your relationship journal exercise, thankfully we did not need it this time :-)
+
+> **Knaidu** asks: Here’s a specific example which occurred whilst I was trying to use the disarming technique. 
+
+> I was meeting a friend of mine, and was a running a few min late for our lunch appointment. I couldn't send her text to let her know as I was driving. I arrived at least 5 min late. When I arrived she immediately said
+> 
+> "I knew it all along, you really don't want to meet with me or actually have lunch with me!”
+> 
+> I tried to explain that I was stuck in a traffic jam and couldn't text, but it didn’t work. Here’s what I said:
+>
+>  “Please Mrs. X, I was stuck in a traffic jam and that's why I am late. Have I ever said I don't want to meet with you? And if I didn't why have I bothered to arrive at all, I mean I could have just not arrived if I didn't want to meet you!"
+> 
+> After I said that she stormed off.
+
