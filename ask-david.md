@@ -1,6 +1,6 @@
 # Ask David
 
-### [006: Ask David — Identity Crisis; Finding a CBT Therapist; Love Me the Way I Am](http://feelinggood.libsyn.com/006-ask-david-identity-crisis-finding-a-cbt-therapist-love-me-the-way-i-am)
+#### [006: Ask David — Identity Crisis; Finding a CBT Therapist; Love Me the Way I Am](http://feelinggood.libsyn.com/006-ask-david-identity-crisis-finding-a-cbt-therapist-love-me-the-way-i-am)
 
 **Responses to questions submitted by listeners**:
 
@@ -8,74 +8,47 @@
 * Why is it so hard to find a therapist trained in cognitive therapy?
 * In a relationship, should you change yourself in order to get along with someone?
 
-Sun, 06 Nov 2016 17:00:00 +0000
-
-
-### [009: Should I Try to Be Happy All the Time? Healthy vs. Unhealthy Emotions](http://feelinggood.libsyn.com/009-should-i-try-to-be-happy-all-the-time-healthy-vs-unhealthy-emotions)
+#### [009: Should I Try to Be Happy All the Time? Healthy vs. Unhealthy Emotions](http://feelinggood.libsyn.com/009-should-i-try-to-be-happy-all-the-time-healthy-vs-unhealthy-emotions)
 
 When we’re feeling depressed, anxious, or angry, should we accept our feelings or try to change them?
 
-Tue, 15 Nov 2016 17:00:00 +0000
-
-
-### [017: Ask David — Dare to be “average”—The perfectionist’s script for self-defeat](http://feelinggood.libsyn.com/017-ask-david-dare-to-be-averagethe-perfectionists-script-for-self-defeat)
+#### [017: Ask David — Dare to be “average”—The perfectionist’s script for self-defeat](http://feelinggood.libsyn.com/017-ask-david-dare-to-be-averagethe-perfectionists-script-for-self-defeat)
 
 > **In your Feeling Good Handbook**, you suggest that the reader just allows himself or herself to be an ordinary person instead of trying to be perfect. Contrary to your opinion in the book, you're an outstanding therapist in reality. You’ve studied in one of the world’s top colleges, you’re well-educated with a doctor degree, and successful in your career and life. How can I believe your claim? I'm quite confused!
 > 
 > **Sincerely, XXX**
 
-Mon, 02 Jan 2017 06:00:00 +0000
-
-### [018: Ask David — Overcoming the Fear of Death](http://feelinggood.libsyn.com/018-ask-david-overcoming-the-fear-of-death)
+#### [018: Ask David — Overcoming the Fear of Death](http://feelinggood.libsyn.com/018-ask-david-overcoming-the-fear-of-death)
 
 > Existential Therapists believe that the fear of death is universal and is at the root of most emotional problems. Dr. Burns argues that the fear of death is actually quite rare, but does occasionally occur and is extremely treatable. In this podcast, David’s describes his quick, three-part “cure” for the fear of death.
  
 > Oddly, every patient he treated in this way insisted at the end of the session that it didn’t help. And even stranger is the fact that 100% of them returned the next week and announced that they actually had been cured and were, in fact, no longer afraid of death!
 
-Mon, 09 Jan 2017 06:00:00 +0000
 
-### [019: Ask David — The Defiant Child: A Secret All Parents Should Know](http://feelinggood.libsyn.com/019-ask-david-the-defiant-child-a-secret-all-parents-should-know)
+#### [019: Ask David — The Defiant Child: A Secret All Parents Should Know](http://feelinggood.libsyn.com/019-ask-david-the-defiant-child-a-secret-all-parents-should-know)
 
 > Can the EAR techniques help a listener deal more effectively with a defiant, oppositional child. Dr. Burns reveals a fantastically helpful secret that he and his wife stumbled across in raising their own children. If you have ever struggled in your attempts to deal with an oppositional child or adolescent, you will find this podcast enlightening!
 
-Mon, 16 Jan 2017 06:00:00 +0000
-
-### [036: Ask David — Empowering the Victim With the Five Secrets](http://feelinggood.libsyn.com/036-ask-david-empowering-the-victim-with-the-five-secrets)
-
-> David and Fabrice begin by discussing the fact that sometimes people vacillate between other-blame (it’s all his/her fault) and self-blame (it’s all my fault), and emphasize that neither approach is helpful. If you blame the other person, the problem escalates and may turn to violence, but if, instead, you blame yourself, you’ll probably end up feeling worthless, guilty, unlovable, and depressed.
-
-> So what’s the solution to this dilemma? Dr. Burns encourages patients to use the [Five Secrets of Effective Communication](https://daviddburnsmd.files.wordpress.com/2017/04/the-five-secrets-v-1.pdf) and make a radical change in the way they communicate with others, along the lines of EAR. E stands for Empathy, A stands for Assertiveness, and R stands for Respect.
-
-> David gives five compelling examples of how to deal with people who REALLY ARE violent and abuse, including a raging psychiatric patient who was threatening the staff and on the verge of exploding, a serial killer who kidnapped a social worker who had attended one of David’s communication workshops, some drunken, abusive teenagers in a huge jeep who threatened David, an insulting, demoralizing, critical boss who put down everyone who worked with him. He includes with the story of a Lutheran minister,  Dietrich Bonhoeffer, who was imprisoned and mistreated by the Nazis during world war two.
-
-Mon, 15 May 2017 05:00:00 +0000
-
-### [053: Ask David — “I don’t feel like doing it!” Quick Cure for Procrastinators](http://feelinggood.libsyn.com/053-ask-david-i-dont-feel-like-doing-it-quick-cure-for-procrastinators)
+#### [053: Ask David — “I don’t feel like doing it!” Quick Cure for Procrastinators](http://feelinggood.libsyn.com/053-ask-david-i-dont-feel-like-doing-it-quick-cure-for-procrastinators)
 
 > *I would love to hear about how you treat people suffering from chronic laziness ("Do Nothingism"). In particular, there seems to be a strong potential of a Catch-22 with Process Resistance: The patient cannot find the motivation to do anything, yet they have to carry out the process (do the homework) to improve.*
 
 > David outlines a multi-step approach, based on someone who has ten years of unfiled papers that have piled up in his office, so that by now 15 feet of desk space is completely covered by piles of papers roughly one foot high. 
 
-* **Paradoxical Agenda Setting:** David asks, “The procrastination seems to be working for you. Why would you want to change? Let’s make a list of all the benefits of procrastination, and all the reasons NOT to change.” David emphasizes that the patient has to convince the therapist that this is something he really **does** want to change. It’s NOT the therapist’s role to help or to convince the patient to change!
-* **Miracle Cure Question:** What kind of help would you like in today’s session? Most patients say they need help with motivation. David declines to offer this, explaining that it isn’t on the therapeutic menu today—only the “Blue Plate Special!” The patient must agree to begin working on the filing in spite of having no motivation.
-* **Specificity:** What time would you like my help in overcoming your procrastination? The patient’s requests for help yesterday or tomorrow are declined by the therapist, so they settle on 6 PM today.
+* **Paradoxical Agenda Setting:**
+* **Miracle Cure Question:** 
+* **Specificity:** 
 
-**Little Steps for Big Feats:** Let’s list the first five things you would need to do tonight at 6 PM, making sure that every step can be completed in 15 to 30 seconds. They list these steps:
-**Let’s Be Specific:** David asks if Fabrice needs help with Step 1? Step 2? Etc. Fabrice finally admits he can do these five steps.
-**Five Minute Rule:** David asks if Fabrice will agree to do these five steps between 6 PM and 6:05 PM, and if he will agree to work on his filing for ONLY those five minutes. At the end of the five minutes he has completed 100% of the assignment. The rationale is that if Fabrice tries to do it all, he’ll get so overwhelmed that he won’t do anything. But if he agrees to ONLY five minutes, that will be do-able. And if he surprises himself, and gets motivated to do more, he can, be he only gets credit for the first five minutes.
-**Problem – Solution List:** David asks Fabrice to put a line down the middle of a piece of paper, from top to bottom, and list all the problems that will get in the way at 6 PM, and then to list convincing solutions to each problem in the right-hand column. Fabrice lists two problems: 1. I won’t feel like it. And 2. Traffic might be heavy, so I might not get home by 6 PM.
+**Little Steps for Big Feats:** 
+**Let’s Be Specific:** 
+**Five Minute Rule:**
+**Problem – Solution List:** 
 
 **“I Stubbornly Refused” Technique:** David asks Fabrice to agree to an unusual phone call at 6:05 PM!
 
 **TIC – TOC Technique:** David plays the role of Fabrice’s “Task-Interfering Cognitions” (TICS) that will tempt him to procrastinate, and asks Fabrice to play the role of the “Task-Oriented Cognitions” (TOCS) he can use to combat the TOCs. 
 
-David confesses the problem is one that he actually had, and describes how he solved it, using this exact approach!
-
-Mon, 11 Sep 2017 05:00:00 +0000
-
-### [058: Ask David — Third-Wave Therapies & Exposure for OCD](http://feelinggood.libsyn.com/058-ask-david-third-wave-therapies-exposure-for-ocd)
-
-Mon, 23 Oct 2017 05:00:00 +0000
+#### [058: Ask David — Third-Wave Therapies & Exposure for OCD](http://feelinggood.libsyn.com/058-ask-david-third-wave-therapies-exposure-for-ocd)
 
 > David and Fabrice begin by reading several incredibly touching reader comments on the live therapy with Marilyn. 
 
@@ -85,9 +58,7 @@ Mon, 23 Oct 2017 05:00:00 +0000
 
 > David argues that for an optimal outcome, he combines four treatment models with every anxious patient: the Motivational Model, the Cognitive Model, the Exposure Model, and the Hidden Emotion Model.
 
-### [061: Ask David — Test Validity, Uncovering the Negative Thoughts, Benefits of Laziness, and More...](http://feelinggood.libsyn.com/061-ask-david-test-validity-uncovering-the-negative-thoughts-benefits-of-laziness-and-more)
-
-We address a number of excellent questions submitted by listeners:
+#### [061: Ask David — Test Validity, Uncovering the Negative Thoughts, Benefits of Laziness, and More...](http://feelinggood.libsyn.com/061-ask-david-test-validity-uncovering-the-negative-thoughts-benefits-of-laziness-and-more)
 
 * Are the scales on your Brief Mood Survey reliable and valid?
 * How can I identify my Negative Thoughts when I'm upset but I can’t figure out what I'm thinking and telling myself?
@@ -97,19 +68,13 @@ We address a number of excellent questions submitted by listeners:
 * What should you do if you feel great at the end of a therapy session, and then become severely upset again during the week?
 * How does Dr. Burns deal with resistance from colleagues when he is trying to teach these new TEAM-CBT techniques? Does he run into much resistance? How does he feel about the resistance?
 
-Mon, 06 Nov 2017 06:00:00 +0000
-
-### [080: Ask David — Where Do Negative Thoughts Come From?](http://feelinggood.libsyn.com/080-ask-david-where-do-negative-thoughts-come-from)
-
-In this podcast, David and Fabrice answer several fascinating questions submitted by listeners:
+#### [080: Ask David — Where Do Negative Thoughts Come From?](http://feelinggood.libsyn.com/080-ask-david-where-do-negative-thoughts-come-from)
 
 * Jackie asks where our distorted thoughts come from, since they are so often irrational and distorted, and inconsistent with the facts. Why do we sometimes beat up on ourselves relentlessly with negative thoughts?
 * Tyler asks if it possible to do TEAM-CBT in conventional, 45 minute sessions. And if so, how? It seems my patients are just warming up by the end of the session, and then we have to start all over again the next week.
 * Jess asks if it is possible to use the Five Secrets of Effective Communication in non-therapy settings. For example, if you are in a position of authority, like a high school teacher, will your students lose respect for you if you use the Five Secrets? Could you use the Five Secrets if you are working with violent gang members?
 
-Mon, 19 Mar 2018 08:00:00 +0000
-
-### [081: Ask David — What's the Best Smoking Cessation Treatment? Is there a Dark Side to Human Nature?](http://feelinggood.libsyn.com/081-ask-david-whats-the-best-smoking-cessation-treatment-is-there-a-dark-side-to-human-nature)
+#### [081: Ask David — What's the Best Smoking Cessation Treatment? Is there a Dark Side to Human Nature?](http://feelinggood.libsyn.com/081-ask-david-whats-the-best-smoking-cessation-treatment-is-there-a-dark-side-to-human-nature)
 
 In this podcast, David and Fabrice answer five challenging questions submitted by listeners:
 
@@ -119,10 +84,7 @@ In this podcast, David and Fabrice answer five challenging questions submitted b
 * Avi asks whether humans have a dark side, with dark negative motives that sometimes compete with positive, loving motives. And if so, how do therapists help patients deal with their own negative motives?
 * Ben asks what to do if you're very anxious but simply can't pinpoint your negative thoughts.
 
-Mon, 26 Mar 2018 08:00:00 +0000
-
-
-## [089: Ask David — Anxiety Triggers, Weaning off Anti-Depressants](http://feelinggood.libsyn.com/089-ask-david-anxiety-triggers-weaning-off-anti-depressants)
+#### [089: Ask David — Anxiety Triggers, Weaning off Anti-Depressants](http://feelinggood.libsyn.com/089-ask-david-anxiety-triggers-weaning-off-anti-depressants)
 
 David and Fabrice answer five intriguing questions submitted by listeners:
 
@@ -132,11 +94,7 @@ David and Fabrice answer five intriguing questions submitted by listeners:
 * Ross: What if a patient who's been the victim of trauma or abuse asks for a male therapist? Isn't this a form of avoidance? Should patients be matched to therapists based on gender? Isn't it best to avoid the situations that trigger you?
 * Sumit: I think I have "endogenous depression." Can TEAM-CBT help me? Or will I have to rely on medications? What is endogenous depression?
 
-If you have a question, make sure you email david and we will try to answer your question on an upcoming Ask David Podcast!
-
-Mon, 21 May 2018 08:00:00 +0000
-
-### [103: Ask David — Dealing with Intrusive Memories, Is Depression Inherited?](http://feelinggood.libsyn.com/103-ask-david-dealing-with-intrusive-memories-is-depression-inherited)
+#### [103: Ask David — Dealing with Intrusive Memories, Is Depression Inherited?](http://feelinggood.libsyn.com/103-ask-david-dealing-with-intrusive-memories-is-depression-inherited)
 
 Today we answer six questions submitted by listeners like you:
 
@@ -147,9 +105,7 @@ Today we answer six questions submitted by listeners like you:
 * Kathy: I’m a big fan, and I have a question about “bibliotherapy.” What’s the best way to use your books and other materials to help yourself?
 * Matthew: Do you ever use drugs in the treatment of depression? Are medications sometimes necessary or helpful?
 
-Mon, 27 Aug 2018 08:00:00 +0000
-
-### [104: Ask David — The Treatment of Acute and Chronic Pain](http://feelinggood.libsyn.com/104-ask-david-the-treatment-of-acute-and-chronic-pain)
+#### [104: Ask David — The Treatment of Acute and Chronic Pain](http://feelinggood.libsyn.com/104-ask-david-the-treatment-of-acute-and-chronic-pain)
 
 David describes research on the relationship between physical pain and negative emotions such as depression, anxiety, and anger. Does pain cause depression? Or does depression cause or amplify pain?
 
@@ -157,31 +113,25 @@ And what can we do to help patients with physical pain and intense negative emot
 
 In addition, why do so many individuals struggle with somatic problems, such as physical pain, dizziness, or fatigue, when there is no apparent organic cause for the pain? Is there any hope?
 
-Mon, 03 Sep 2018 08:00:00 +0000
+#### [105: Ask Dr. Helen (and David) — Is There Such a Thing as Empathy Fatigue?](http://feelinggood.libsyn.com/105-ask-dr-helen-and-david-is-there-such-a-thing-as-empathy-fatigue)
 
-### [105: Ask Dr. Helen (and David) — Is There Such a Thing as Empathy Fatigue?](http://feelinggood.libsyn.com/105-ask-dr-helen-and-david-is-there-such-a-thing-as-empathy-fatigue)
+> In today's podcast, we address a question from Mary about how to deal with a husband who constantly complains and exaggerates how awful things are at work, in politics, and in the world. But when Mary tries to dismiss his statements in an effort to "keep the peace," it just gets worse. His complaints escalate!
 
-We have invited Dr. Helen Yeni-Komshian to join Fabrice and me for two consecutive podcasts on questions listeners have asked about troubled relationships. In today's podcast, we address a question from Mary about how to deal with a husband who constantly complains and exaggerates how awful things are at work, in politics, and in the world. But when Mary tries to dismiss his statements in an effort to "keep the peace," it just gets worse. His complaints escalate!
+> This is a common problem and you may have run into it as well. Do you have a friend or family member who loves to complain? And have you noticed that your attempts to help or point out the irrationality of his or her complaints are futile? So what SHOULD you do? What's the secret of dealing with a whiner or a complainer? Is it even possible.
 
-This is a common problem and you may have run into it as well. Do you have a friend or family member who loves to complain? And have you noticed that your attempts to help or point out the irrationality of his or her complaints are futile? So what SHOULD you do? What's the secret of dealing with a whiner or a complainer? Is it even possible.
+> Helen and David provide a myriad of information and describe techniques such as Forced Empathy, Interpersonal Decision Making, Changing the Focus, and the Five Secrets of Effective Communication. You'll LOVE this lively dialogue!
 
-Helen and David provide a myriad of information and describe techniques such as Forced Empathy, Interpersonal Decision Making, Changing the Focus, and the Five Secrets of Effective Communication. You'll LOVE this lively dialogue!
+#### [108: Do You Have a "Self?"](http://feelinggood.libsyn.com/108-do-you-have-a-self)
 
-Mon, 10 Sep 2018 08:00:00 +0000
+> David emphasizes that there are two issues. First, can your “self” be validly judged as not good enough, as inferior or even worthless? Or, can your “self” be validly judged as more worthwhile, or even superior? And is it really true that some people are more worthwhile, or less worthwhile, than others? Do more worthwhile, or less worthwhile human beings exist?
 
-### [108: Do You Have a "Self?"](http://feelinggood.libsyn.com/108-do-you-have-a-self)
+> Second, do we even have a “self?”
 
-David emphasizes that there are two issues. First, can your “self” be validly judged as not good enough, as inferior or even worthless? Or, can your “self” be validly judged as more worthwhile, or even superior? And is it really true that some people are more worthwhile, or less worthwhile, than others? Do more worthwhile, or less worthwhile human beings exist?
+> Fabrice talks about the history of the concept of ego. For example, Freud divided the human mind into three parts: the id, ego and superego. Do these really exist as “things,” or are they just concepts, or metaphors for talking about the mind? When you try to think about the “ego” or the “self” as a thing, that’s when you get in trouble.
 
-Second, do we even have a “self?”
+> David argues that if you believe that someone people are “more worthwhile” or “less worthwhile,” you’d have to define what a of worthwhile human being is.
 
-Fabrice talks about the history of the concept of ego. For example, Freud divided the human mind into three parts: the id, ego and superego. Do these really exist as “things,” or are they just concepts, or metaphors for talking about the mind? When you try to think about the “ego” or the “self” as a thing, that’s when you get in trouble.
-
-David argues that if you believe that someone people are “more worthwhile” or “less worthwhile,” you’d have to define what a of worthwhile human being is.
-
-Mon, 01 Oct 2018 08:00:00 +0000
-
-### [110: Ask David — How do You Deal with a Sociopath?](http://feelinggood.libsyn.com/110-ask-david-how-do-you-deal-with-a-sociopath)
+#### [110: Ask David — How do You Deal with a Sociopath?](http://feelinggood.libsyn.com/110-ask-david-how-do-you-deal-with-a-sociopath)
 
 * **Richard: **Do you have to get along with **everybody**? How do you deal with a sociopath?
 * **Dave:** Positive distortions can trigger mania, addictions, narcissism, and violence--but how can you get rid of them?
@@ -189,7 +139,7 @@ Mon, 01 Oct 2018 08:00:00 +0000
 * **Omhur:** How would you treat "Reading OCD?" I feel compelled to read every sentence and paragraph carefully and repeatedly so I won't miss anything!
 * **Unnamed fan** (who left a negative review on iTunes): Isn't your concept of the death of the ego potentially dangerous to people with low self-esteem who are being abused?
 
-### [113: Ask David — How Can I Overcome My Perfectionism?](http://feelinggood.libsyn.com/113-ask-david-how-can-i-overcome-my-perfectionism)
+#### [113: Ask David — How Can I Overcome My Perfectionism?](http://feelinggood.libsyn.com/113-ask-david-how-can-i-overcome-my-perfectionism)
 
 1. Steven asks about the best route to take if you want to learn and practice TEAM-CBT? Is the degree important? What's the best degree? Should you go to school to become a psychologist,  clinical social worker, addiction counselor, psychiatrist, professional counselor, pastoral counselor, marriage and family therapist, life coach, or what? There are so many degrees and potential paths that my head is spinning!
 2. Sandy asks how to overcome long-standing, entrenched perfectionistic tendencies.
@@ -198,9 +148,9 @@ Mon, 01 Oct 2018 08:00:00 +0000
 5. Amanda asks how to use the Disarming Technique with a patient who thinks he or she isn’t making any progress in the therapy.
 
 
-### [121: Ask David — Do You Believe in Freud's Notion of Secondary Gain? Is Seasonal Affective Disorder (SAD) Real?](http://feelinggood.libsyn.com/121-ask-david-do-you-believe-in-freuds-notion-of-secondary-gain-is-seasonal-affective-disorder-sad-real)
+#### [121: Ask David — Do You Believe in Freud's Notion of Secondary Gain? Is Seasonal Affective Disorder (SAD) Real?](http://feelinggood.libsyn.com/121-ask-david-do-you-believe-in-freuds-notion-of-secondary-gain-is-seasonal-affective-disorder-sad-real)
 
-### Answers to Great Questions from Listeners Like YOU! 
+#### Answers to Great Questions from Listeners Like YOU! 
 
 * **Dylan asks:** Do you believe in Freud’s “secondary gain,” in which patients resist change because they benefit from their symptoms?
 * **Juleann asks:** Is Seasonal Affective Disorder (SAD) a real thing?
@@ -211,9 +161,9 @@ Mon, 01 Oct 2018 08:00:00 +0000
 
 Mon, 31 Dec 2018 09:00:00 +0000
 
-### [125: Ask David — How Do You Treat Chronic Laziness?](http://feelinggood.libsyn.com/125-ask-david-how-do-you-treat-chronic-laziness)
+#### [125: Ask David — How Do You Treat Chronic Laziness?](http://feelinggood.libsyn.com/125-ask-david-how-do-you-treat-chronic-laziness)
 
-### More Great Questions from Listeners 
+#### More Great Questions from Listeners 
 
 * **Kevin asks:** After your initial improvement from treatment or from reading your book, Feeling Good, what can one do moving forward to give yourself “booster shots?”
 * **Umatsagir asks a related question:** I feel great right after reading your book, Feeling Good, but the effect diminishes over time. What should I do?
@@ -223,7 +173,7 @@ Mon, 31 Dec 2018 09:00:00 +0000
 * **Jim asks another related question:** How about doing a podcast on psychotherapy homework? “What do you have your patients do for homework? This is particularly important since I have 45 minute sessions and can only see my patients for 45 minutes every two or three weeks.”
 
 
-### [131: Ask David — How Can I Develop Greater Joy and Happiness? Does "Neuroticism" Exist?](http://feelinggood.libsyn.com/131-ask-david-how-can-i-develop-greater-joy-and-happiness-does-neuroticism-exist)
+#### [131: Ask David — How Can I Develop Greater Joy and Happiness? Does "Neuroticism" Exist?](http://feelinggood.libsyn.com/131-ask-david-how-can-i-develop-greater-joy-and-happiness-does-neuroticism-exist)
 
 **Debbie asks:** Can you use TEAM-CBT to help people with medical disorders, such as Parkinsonism or Cancer?
   * Stirling Moorey's book on [Cognitive Therapy for cancer patients](https://www.amazon.co.uk/Cognitive-Behaviour-Therapy-People-Cancer/dp/0198508662/ref=sr_1_4/261-8546409-9243516?s=books&ie=UTF8&qid=1547144633&sr=1-4&refinements=p_27%3AStirling+Moorey).
@@ -249,7 +199,7 @@ People with high neuroticism indexes are at risk for the development and onset o
 > 
 > I hope you can "see" this! The reason I mention this is they make it sound like they discovered some "trait" you have which causes you to have depression, or anxiety, and so forth. But they haven't! It's just a word game. In fact, scientists don't yet know the causes of any of these problems, and "traits" do not actually "exist." 
 
-### [132: Ask David — Do we really create our own interpersonal reality? What if you’re being raped?](http://feelinggood.libsyn.com/132-ask-david-do-we-really-create-our-own-interpersonal-reality-what-if-youre-being-raped)
+#### [132: Ask David — Do we really create our own interpersonal reality? What if you’re being raped?](http://feelinggood.libsyn.com/132-ask-david-do-we-really-create-our-own-interpersonal-reality-what-if-youre-being-raped)
 
 Today’s Ask David questions.
 
@@ -259,7 +209,7 @@ Today’s Ask David questions.
 * How do you deal with entitlement? I think my patients should do what I tell them to do! After all, I’m a highly trained professional!
 * How do you deal with racism, sexism, and other societal barriers? What if the injustice is **real** and it isn’t “all in your head?”
 
-### [140: Ask David--Hypochondria, Abuse Survivors, Healthy Euphoria, Mania, ADHD, LSD and more!](http://feelinggood.libsyn.com/140-ask-david-hypochondria-abuse-survivors-healthy-euphoria-mania-adhd-lsd-and-more)
+#### [140: Ask David--Hypochondria, Abuse Survivors, Healthy Euphoria, Mania, ADHD, LSD and more!](http://feelinggood.libsyn.com/140-ask-david-hypochondria-abuse-survivors-healthy-euphoria-mania-adhd-lsd-and-more)
 
 * **Jose and Bri both asked:** How would you treat hypochondria?
 * **Christian:** How would you treat an abuse survivor? I’ve heard that talk therapy is inadequate for healing trauma!
@@ -270,25 +220,20 @@ Today’s Ask David questions.
 
 Mon, 13 May 2019 08:00:00 +0000
 
-### [146: When Helping Doesn't Help!](http://feelinggood.libsyn.com/146-when-helping-doesnt-help)
+#### [146: When Helping Doesn't Help!](http://feelinggood.libsyn.com/146-when-helping-doesnt-help)
 
 > Most people do not do a very good at helping loved ones, colleagues, or friends who are upset and complaining. Have you ever noticed that when you try to help or give advice they just keep complaining? This can be very frustrating--fortunately there's a fabulous solution to this universal problem. 
 
-Rhonda, Jill, and I discussed the most common errors we all make when we lose patience with someone who's complaining, and illustrated the techniques that are effective. As usual, they involve the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf), especially Disarming, Stroking, and Feeling Empathy, along with some compassionate I Feel Statements.
+Rhonda, Jill, and I discussed the most common errors we all make when we lose patience with someone who's complaining, and illustrated the techniques that are effective. 
+
+* [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf)
+  * especially Disarming, Stroking, and Feeling Empathy, along with some compassionate I Feel Statements.
 
 > We also discussed a closely related and possibly controversial theme--is it okay to use the Five Secrets just to get someone to stop complaining, especially if you're angry with that person and they tend to complain most or all of the time? Do you always have to use the Five Secrets in a totally sincere manner? 
 
-[online training with Jill!](http://www.feelinggoodinstitute.com/)
-
-David and Rhonda
-
-Mon, 24 Jun 2019 08:00:00 +0000
-
-### [147: High-Speed Treatment of PTSD?](http://feelinggood.libsyn.com/147-high-speed-treatment-of-ptsd)
+#### [147: High-Speed Treatment of PTSD?](http://feelinggood.libsyn.com/147-high-speed-treatment-of-ptsd)
 
 #### Is it REALLY Possible? And Can the Effects Last? 
-
-Mon, 01 Jul 2019 08:00:00 +0000
 
 > Rhonda and David interview Garry, a veteran who David treated for PTSD several years ago at a trauma workshop in Michigan. Garry describes how a repressed horrific memory from his childhood suddenly and forcefully re-emerged when he smelled some Queen Anne’s Lace that were in blossom. 
 
@@ -302,7 +247,7 @@ Mon, 01 Jul 2019 08:00:00 +0000
 
 > Can severe PTSD be treated in a single therapy session? Did Garry **really** improve? Were the changes real? Did they last? And how did the therapy work?
 
-### [148: Ask David: What's in your new book? What's a nervous breakdown? How fast is fast? And more!](http://feelinggood.libsyn.com/148-ask-david-whats-in-your-new-book-whats-a-nervous-breakdown-how-fast-is-fast-and-more)
+#### [148: Ask David: What's in your new book? What's a nervous breakdown? How fast is fast? And more!](http://feelinggood.libsyn.com/148-ask-david-whats-in-your-new-book-whats-a-nervous-breakdown-how-fast-is-fast-and-more)
 
 * **Vipul:** Tell us about your new book, Feeling Great. How will it be different from Feeling Good? And can people with schizoaffective disorder be helped? (story with Stirling Moorey)
 * **Guy:** What’s a nervous breakdown?
@@ -312,7 +257,7 @@ Mon, 01 Jul 2019 08:00:00 +0000
 * **Brittany:** I had an idea that I think would benefit a lot of us. I’d like you to do a podcast on a week or a day in your life. The ups & downs of your moods, triggers, etc., & most importantly how you deal with them. Do you write out your own Negative Thoughts a Daily Mood Log?
 Thank you for all of your great questions, comments, and testimonials! Rhonda and I really appreciate that!  
 
-### [150: I'm anxious but don't have any negative thoughts. What can I do?](http://feelinggood.libsyn.com/150-im-anxious-but-dont-have-any-negative-thoughts-what-can-i-do)
+#### [150: I'm anxious but don't have any negative thoughts. What can I do?](http://feelinggood.libsyn.com/150-im-anxious-but-dont-have-any-negative-thoughts-what-can-i-do)
 
 Mon, 22 Jul 2019 08:00:00 +0000
 
@@ -321,7 +266,7 @@ Mon, 22 Jul 2019 08:00:00 +0000
 * How can I get over my public speaking anxiety?
 
 
-### 153 - [Ask David: Is it ok to touch patients? Does Depression ALWAYS result from distorted thoughts? And more!](http://feelinggood.libsyn.com/153-ask-david-is-it-ok-to-touch-patients-does-depression-always-result-from-distorted-thoughts-and-more)	
+#### 153 - [Ask David: Is it ok to touch patients? Does Depression ALWAYS result from distorted thoughts? And more!](http://feelinggood.libsyn.com/153-ask-david-is-it-ok-to-touch-patients-does-depression-always-result-from-distorted-thoughts-and-more)	
 Mon, 12 Aug 2019 08:00:00 +0000
 
 * **Kelly** asks**:** Would love to hear a podcast about to use or not to use touch in therapy. I personally feel touch is extremely helpful (what is more natural than to hug or put a hand on someone hurting), however I believe our profession has become so “professionalized” that is leaves out such a power act of healing. Did you ever use touch when you were practicing, and do you feel it is appropriate?
@@ -330,25 +275,18 @@ Mon, 12 Aug 2019 08:00:00 +0000
 * **Eduardo** asks: How do you treat hypochondriasis. Almost all articles and advices I've read for hypochondriasis try to cover the writer's back by first and foremost telling you that you should get yourself checked for real causes for your concern.
 * **Eduardo** also asks: I've been struggling with anxiety, and after reading When Panic Attacks, I got very interested in giving The Hidden Emotion model a try, but it seems to be structure-less. It seems to require a lot of detective work with no clear sheet or procedure. It's just Detective Work, and then do something about it. Is there some newer technique to dig into what's eating you?
 
-### [156: Ask David: How can I cope with claustrophobia? What if the entire world thinks I am not worthwhile?](http://feelinggood.libsyn.com/156-ask-david-how-can-i-cope-with-claustrophobia-what-if-the-entire-world-thinks-i-am-not-worthwhile)
+#### [156: Ask David: How can I cope with claustrophobia? What if the entire world thinks I am not worthwhile?](http://feelinggood.libsyn.com/156-ask-david-how-can-i-cope-with-claustrophobia-what-if-the-entire-world-thinks-i-am-not-worthwhile)
 
 Mon, 02 Sep 2019 08:00:00 +0000
 
-> **Ann** asks: Loved your podcast (on the exposure model, #26)! I have suffered from panic attacks for years - the past 2 years I've become agoraphobic and don't want to be far away from my house. So, my phobia is now "having panic attacks." Does that mean I just need to go out and have a bunch of panic attacks in public to get over my fear? The thought seems terrifying.
-
-> **Nathan** asks: In your podcasts you mention that you conducted a "study on the psychiatric inpatient unit at the Stanford Hospital, in which I evaluated how accurate therapists’ perceptions of patients were after an interaction."
-
+> * **Ann** asks: Loved your podcast (on the exposure model, #26)! I have suffered from panic attacks for years - the past 2 years I've become agoraphobic and don't want to be far away from my house. So, my phobia is now "having panic attacks." Does that mean I just need to go out and have a bunch of panic attacks in public to get over my fear? The thought seems terrifying.
+> * **Nathan** asks: In your podcasts you mention that you conducted a "study on the psychiatric inpatient unit at the Stanford Hospital, in which I evaluated how accurate therapists’ perceptions of patients were after an interaction."
 > I was wondering if you could provide me with a reference to this study? 
-
-> **Richard** asks: I listened to your podcast on being worthwhile and found it interesting. You say all people are worthwhile. This may be true but does the whole world think this?
-
+> * **Richard** asks: I listened to your podcast on being worthwhile and found it interesting. You say all people are worthwhile. This may be true but does the whole world think this?
 > If a person is worthwhile but the world thinks they are not worthwhile, isn't this almost as bad as not actually being worthwhile. Don't we have to play by the world’s rules, however bad, instead of our own or the Platonic rules? What do you think?
-
-> **Robert** asks: I have never heard you mention Tom Szasz, who, as I am sure you know, was making some of the same observations about the constructs of medicalizing you make back in the 1960s and maybe even in the 50s.
-
+> * **Robert** asks: I have never heard you mention Tom Szasz, who, as I am sure you know, was making some of the same observations about the constructs of medicalizing you make back in the 1960s and maybe even in the 50s.
 > In particular, his criticism of the psychiatric industry giving the names of diseases or syndromes to behavioral issues was very consistent with yours.
-
-> **Robert** also asks: My other question is an idea for future podcasts and it is...How about critiquing the therapeutic approach we see so often on television and in the movies?
+> * **Robert** also asks: My other question is an idea for future podcasts and it is...How about critiquing the therapeutic approach we see so often on television and in the movies?
 
 [Therapists on the Big and Small Screens versus Real Life](https://www.huffpost.com/entry/therapists-on-the-big-and_b_4263798)
 
@@ -358,9 +296,7 @@ Burns, D., Westra, H., Trockel, M., & Fisher, A. (2012) Motivation and Changes i
 
 Hatcher, R. L., Barends, A., Hansell, J. & Gutfreund, M.J. (1995). Patients' and therapists' shared and unique views of the therapeutic alliance: An investigation using confirmatory factory analysis in a nested design. **Journal of Consulting and Clinical Psychology, 63(4)**, 636 - 643.
 
-### [163: Ask David: Anxiety, Dreams, Cyclical Negative Thoughts, Secrets of Selling, Exposure, and more](http://feelinggood.libsyn.com/163-ask-david-anxiety-dreams-cyclical-negative-thoughts-secrets-of-selling-exposure-and-more)
-
-Mon, 21 Oct 2019 08:00:00 +0000
+#### [163: Ask David: Anxiety, Dreams, Cyclical Negative Thoughts, Secrets of Selling, Exposure, and more](http://feelinggood.libsyn.com/163-ask-david-anxiety-dreams-cyclical-negative-thoughts-secrets-of-selling-exposure-and-more)
 
 * How do you interpret dreams?
 * Are negative thoughts cyclical?
@@ -368,9 +304,7 @@ Mon, 21 Oct 2019 08:00:00 +0000
 * How does exposure work?
 * Will you teach on the East Coast again?
 
-### [164: How to HELP, and how NOT to Help!](http://feelinggood.libsyn.com/164-how-to-help-and-how-not-to-help)
-
-Mon, 28 Oct 2019 08:00:00 +0000
+#### [164: How to HELP, and how NOT to Help!](http://feelinggood.libsyn.com/164-how-to-help-and-how-not-to-help)
 
 > So, the short answer to your question is—skillful listening is all that’s called for. Anything more runs the risk of getting you into trouble. But this may require a radical change in the way you communicate, as well as your personal philosophy.
 
@@ -424,7 +358,7 @@ Use the [Five Secrets of Effective Communication](https://feelinggood.com/wp-con
 
 David D. Burns, M.D. & Rhonda Barovsky, Psy.D.
 
-### [165: Ask David: Why do shrinks kill themselves? How to find out if your loved one is suicidal.](http://feelinggood.libsyn.com/165-ask-david-why-do-shrinks-kill-themselves-how-to-find-out-if-your-loved-one-is-suicidal)
+#### [165: Ask David: Why do shrinks kill themselves? How to find out if your loved one is suicidal.](http://feelinggood.libsyn.com/165-ask-david-why-do-shrinks-kill-themselves-how-to-find-out-if-your-loved-one-is-suicidal)
 
 Mon, 04 Nov 2019 09:00:00 +0000
 
@@ -446,7 +380,7 @@ Mon, 04 Nov 2019 09:00:00 +0000
 This may all sound grim and very unpleasant, but these kinds of conversations can sometimes be lifesaving, and can protect you from much greater pain later on.
 
 
-### [168: Ask David: The Blushing Cure, How to Heal a Broken Heart, Treating Anorexia, and more!](http://feelinggood.libsyn.com/168-ask-david-the-blushing-cure-how-to-heal-a-broken-heart-treating-anorexia-and-more)
+#### [168: Ask David: The Blushing Cure, How to Heal a Broken Heart, Treating Anorexia, and more!](http://feelinggood.libsyn.com/168-ask-david-the-blushing-cure-how-to-heal-a-broken-heart-treating-anorexia-and-more)
 
 **1. How can I overcome my fear of blushing?**
 
@@ -468,7 +402,7 @@ This may all sound grim and very unpleasant, but these kinds of conversations ca
 
 Mon, 25 Nov 2019 09:00:00 +0000
 
-### [170: Ask David: Helping Abused Women, and the Case Against Wellness!](http://feelinggood.libsyn.com/170-ask-david-helping-abused-women-and-the-case-against-wellness)
+#### [170: Ask David: Helping Abused Women, and the Case Against Wellness!](http://feelinggood.libsyn.com/170-ask-david-helping-abused-women-and-the-case-against-wellness)
 
 Mon, 09 Dec 2019 09:00:00 +0000
 
@@ -491,7 +425,7 @@ Mon, 09 Dec 2019 09:00:00 +0000
 
 > The quick answer to your question, which you can also hear in the podcast on “[fractal psychotherapy](https://feelinggood.com/2019/03/04/130-whats-fractal-psychotherapy/)" is that I focus narrowly on one specific moment when the patient was upset, and if it is an individual mood problem, like depression or anxiety, I ask the patient to record his or her negative thoughts and feelings at that specific moment on the Daily Mood Log. This activates just a few brain networks, out of the billions or trillions of networks in the brain, and we selectively modify those networks using techniques specifically chosen for this individual patient. There are no no-specific interventions.
 
-### [171: Ask David: "Burn Out," Physical Pain, and more](http://feelinggood.libsyn.com/171-ask-david-burn-out-physical-pain-and-more)
+#### [171: Ask David: "Burn Out," Physical Pain, and more](http://feelinggood.libsyn.com/171-ask-david-burn-out-physical-pain-and-more)
 
 Mon, 16 Dec 2019 09:00:00 +0000
 
@@ -502,7 +436,7 @@ Mon, 16 Dec 2019 09:00:00 +0000
 
 > My later research confirmed that negative emotions can, in fact, magnify the experience of physical pain, and that, on average, 50% of the pain we experience results from our negative emotions. This finding should provide hope for individuals struggling with physical pain, especially since this is a drug-free treatment not involving opiates.
 
-### [172: Ask David: What's the Impact of Emotional Trauma on the Brain? And more](http://feelinggood.libsyn.com/172-ask-david-whats-the-impact-of-emotional-trauma-on-the-brain-and-more)
+#### [172: Ask David: What's the Impact of Emotional Trauma on the Brain? And more](http://feelinggood.libsyn.com/172-ask-david-whats-the-impact-of-emotional-trauma-on-the-brain-and-more)
 
 **1. Is it true that emotional trauma affects the brain?**
   >I just try to accept my many shortcoming and work around them. The problem is rarely our flaws or imperfections, but rather the distorted negative messages we give ourselves; messages that generate anxiety, fear, inadequacy, shame, and so forth.
@@ -513,7 +447,7 @@ Mon, 16 Dec 2019 09:00:00 +0000
 
 Mon, 23 Dec 2019 09:00:00 +0000
 
-### [175: What if I REALLY AM a useless human being? The Cure for Therapeutic Failure!](http://feelinggood.libsyn.com/175-what-if-i-really-am-a-useless-human-being-the-cure-for-therapeutic-failure)
+#### [175: What if I REALLY AM a useless human being? The Cure for Therapeutic Failure!](http://feelinggood.libsyn.com/175-what-if-i-really-am-a-useless-human-being-the-cure-for-therapeutic-failure)
 
 > *I might ask him what time of day he was feeling useless, and then have him fill out a Daily Mood Log for that moment, step by step. We can only help him at one specific moment.*
 > *You can use a large number of techniques but must first get an A on Empathy, and then do effective paradoxical agenda setting, starting with the Paradoxical Invitation Step and then asking “what type of help would you be looking for?” then you can do the Magic Button and Positive Reframing.*
@@ -537,7 +471,7 @@ Mon, 23 Dec 2019 09:00:00 +0000
 
 Mon, 13 Jan 2020 09:00:00 +0000
 
-### [176: My suicidal daughter refuses to talk with me / How can I deal with my jealousy?](http://feelinggood.libsyn.com/176-my-suicidal-daughter-refuses-to-talk-with-me-how-can-i-deal-with-my-jealousy)
+#### [176: My suicidal daughter refuses to talk with me / How can I deal with my jealousy?](http://feelinggood.libsyn.com/176-my-suicidal-daughter-refuses-to-talk-with-me-how-can-i-deal-with-my-jealousy)
  
 **Question #1: Cindy asks: My suicidal daughter refuses to talk to me! What can I do?**
 
@@ -560,7 +494,7 @@ Mon, 13 Jan 2020 09:00:00 +0000
 
 Mon, 20 Jan 2020 09:00:00 +0000
 
-### [182: Ask David-Are Negative and Positive Distortions Bad? Treating an Existential Crisis. Agreeing with Unfair Criticisms](http://feelinggood.libsyn.com/182-ask-david-are-negative-and-positive-distortions-bad-treating-an-existential-crisis-agreeing-with-unfair-criticisms)
+#### [182: Ask David-Are Negative and Positive Distortions Bad? Treating an Existential Crisis. Agreeing with Unfair Criticisms](http://feelinggood.libsyn.com/182-ask-david-are-negative-and-positive-distortions-bad-treating-an-existential-crisis-agreeing-with-unfair-criticisms)
 
 > * I am confused about the terms, negative and positive distortions. Help!
 > * “How do you treat an “existential crisis?”

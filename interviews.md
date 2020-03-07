@@ -1,103 +1,86 @@
 # Interviews
 
-## [082: Neil Sattin Interview — Cognitive Distortions and Relationships](http://feelinggood.libsyn.com/082-neil-sattin-interview-cognitive-distortions-and-relationships) - [transcript](https://www.neilsattin.com/blog/2018/03/133-change-thoughts-change-life-cognitive-distortions-dr-david-burns/)
+#### [082: Neil Sattin Interview — Cognitive Distortions and Relationships](http://feelinggood.libsyn.com/082-neil-sattin-interview-cognitive-distortions-and-relationships) - [transcript](https://www.neilsattin.com/blog/2018/03/133-change-thoughts-change-life-cognitive-distortions-dr-david-burns/)
 
-This interview was first published on Neil Sattin's highly regarded [Relationship Alive Podcast](https://www.neilsattin.com/). Although some of the material may be familiar, there's much that's new, and you will enjoy the chemistry between Neil and David as they discuss each of the ten cognitive distortions and raise many challenging questions, such as:
-* Is it **really** true that only our thoughts--and NOT external events--can change the way we feel?
-* If someone has the belief, "I'm unlovable," isn't that type of thought immutable? How could you possibly change or modify a thought that may be rooted in traumatic experiences and so deeply embedded in a patient's psyche?
-* Should we try to change other people's cognitive distortions, or just our own?
-* How can we challenge each of the ten cognitive distortions?
-And much more!
+> This interview was first published on Neil Sattin's highly regarded [Relationship Alive Podcast](https://www.neilsattin.com/). Although some of the material may be familiar, there's much that's new, and you will enjoy the chemistry between Neil and David as they discuss each of the ten cognitive distortions and raise many challenging questions, such as:
+> * Is it **really** true that only our thoughts--and NOT external events--can change the way we feel?
+> * If someone has the belief, "I'm unlovable," isn't that type of thought immutable? How could you possibly change or modify a thought that may be rooted in traumatic experiences and so deeply embedded in a patient's psyche?
+> * Should we try to change other people's cognitive distortions, or just our own?
+> * How can we challenge each of the ten cognitive distortions?
 
-Mon, 02 Apr 2018 08:00:00 +0000
+#### [090: Roy Germano Interview — How David Became an Anti-Antidepressant Crusader and a Bestselling Author](http://feelinggood.libsyn.com/090-roy-germano-interview-how-david-became-an-anti-antidepressant-crusader-and-a-bestselling-author)
 
-### [090: Roy Germano Interview — How David Became an Anti-Antidepressant Crusader and a Bestselling Author](http://feelinggood.libsyn.com/090-roy-germano-interview-how-david-became-an-anti-antidepressant-crusader-and-a-bestselling-author)
+> You will get some personal glimpses into the early days of my career, including why I left academics to pursue a full-time private practice, along with some of controversies about antidepressants. You will also hear a story of what happened when I was trying, rather unsuccessfully, to get my first book, **Feeling Good**, published. It wasn’t easy, and it almost didn’t happen!
 
-I was recently interviewed by author, professor, and documentary filmmaker Roy Germano for his outstanding Other Side Podcast. Fabrice and I thought you might enjoy this interview, and Roy graciously gave us permission to share it with you.
+> Roy is terrific and his podcasts cover a wide range of topics. You can find [his podcasts on iTunes](https://itunes.apple.com/us/podcast/other-side-with-roy-germano/id1355438604?mt=2).
 
-You will get some personal glimpses into the early days of my career, including why I left academics to pursue a full-time private practice, along with some of controversies about antidepressants. You will also hear a story of what happened when I was trying, rather unsuccessfully, to get my first book, **Feeling Good**, published. It wasn’t easy, and it almost didn’t happen!
+#### [092: Stephanie James Interview (Part 1) — Feeling Good Now](http://feelinggood.libsyn.com/092-stephanie-james-interview-part-1-feeling-good-now)
 
-Roy is terrific and his podcasts cover a wide range of topics. You can find [his podcasts on iTunes](https://itunes.apple.com/us/podcast/other-side-with-roy-germano/id1355438604?mt=2).
+> I recently did the first of three interviews with Stephanie James on her superb radio show and [podcast, **The Spark**](https://www.thesparkpod.com/episodes/).  
 
-Mon, 28 May 2018 08:00:00 +0000
-
-### [092: Stephanie James Interview (Part 1) — Feeling Good Now](http://feelinggood.libsyn.com/092-stephanie-james-interview-part-1-feeling-good-now)
-
-Mon, 11 Jun 2018 08:00:00 +0000
-
-I recently did the first of three interviews with Stephanie James on her superb radio show and [podcast, **The Spark**](https://www.thesparkpod.com/episodes/).  Here’s how Stephanie described the interview (with minor changes):
-
-We have amazing power within us to change our thoughts, our feelings, our actions, and our lives.
-
-This episode is an inspirational way to take control of your automatic negative thoughts today and transform them in order to create a more joyful present and a more fulling future.
-
-Join us as we talk with the legendary [Dr. David Burns](https://feelinggood.com/) about how we can break through the old thinking habits that bind us and begin to live a more happy, harmonious life where we can feel good now.
+> Join us as we talk with the legendary [Dr. David Burns](https://feelinggood.com/) about how we can break through the old thinking habits that bind us and begin to live a more happy, harmonious life where we can feel good now.
 Stephanie is a superb therapist and dynamic radio personality from Colorado. It was an honor to be on her show. She is co-authoring a book on how to live a “spark-filled life.” It should be completed soon, so you’ll likely be hearing from Stephanie a lot next year!
 
-### [099: Lisa Nicole Bell Interview — Behind the Brilliance](http://feelinggood.libsyn.com/099-lisa-nicole-bell-interview-behind-the-brilliance)
 
-Lisa Nicole Bell is the host of the highly regarded podcast, **Behind the Brilliance**. In this lively interview, Nicole and David talk about
+#### [111: Stephanie James Interview (Part 2) — On the Road to Feeling Great](http://feelinggood.libsyn.com/092-stephanie-james-interview-part-2-on-the-road-to-feeling-great)
 
-* David’s path into the mental health field
-* the difficulties and rejections David faced getting his first book, **Feeling Good**, published
-* David’s advice to listeners interested in therapy
-* how he approaches perfectionism, depression, and anxiety with patients
-* the joys of a life free from the need to be special—
-* and much more!
+> This interview with Stephanie focused, in part, on the evolution of the new TEAM-CBT from traditional Cognitive Behavioral Therapy (CBT). Stephanie asks Dr. Burns questions on a wide range of topics, including:
 
-Mon, 30 Jul 2018 08:00:00 +0000
+> * How would you treat a case of social anxiety?
+> * What is “therapeutic whitewashing” and how can therapists get over it? What should therapists do instead?
+> * How would you work with violent incarcerated teenagers, such as gang members?
+> * Why is it so important for therapists who are learning TEAM-CBT to check their egos at the door?
+> * After you published your first book, Feeling Good, and the first research study on CBT was published, cognitive therapy swept the world. After your initial euphoria, your enthusiasm dimmed somewhat. Why? And what new direction did your research lead?
+> * What are the most common errors that therapists make in thinking about the causes of therapeutic resistance?
+> * How can you overcome a patient’s resistance to change?
+> * Can TEAM-CBT work rapidly for someone with horrific abuse and decades of failed therapy?
+> * How can you prevent relapses following the patient’s initial recovery?
 
-### [100: The New Micro-Neurosurgery — A Remarkable Interview with Dr. Mark Noble](http://feelinggood.libsyn.com/episode-100-the-new-micro-neurosurgery-a-remarkable-interview-with-dr-mark-noble)
+#### [117: Stephanie James Interview (Part 3) — The Trifecta of Feeling Terrific](http://feelinggood.libsyn.com/117-stephanie-james-interview-part-3-the-trifecta-of-feeling-terrific)
+
+> Stephanie also recently interviewed our beloved colleague, Dr. Matthew May, a psychiatrist who is a phenomenal TEAM therapist. [Click here if you'd like to take a look and listen](https://www.thesparkpod.com/episodes/029-breakthrough-to-healing-with-dr-matthew-may/.
+
+> Matt has worked with Fabrice and me on our podcasts--you may remember the amazing and inspiring podcasts featuring [live therapy with Marilyn.](https://feelinggood.com/2017/08/07/049-live-session-marilyn-testing-empathy-part-1/)
+
+> Stephanie is a outstanding therapist and radio personality from Colorado. It was an honor to be on her show on three occasions. Stephanie is co-authoring a book on how to live a “spark-filled life.” It should be completed soon, so you’ll likely be hearing much more from Stephanie during 2019!
+
+#### [099: Lisa Nicole Bell Interview — Behind the Brilliance](http://feelinggood.libsyn.com/099-lisa-nicole-bell-interview-behind-the-brilliance)
+
+> Lisa Nicole Bell is the host of the highly regarded podcast, **Behind the Brilliance**. In this lively interview, Nicole and David talk about
+
+> * David’s path into the mental health field
+> * the difficulties and rejections David faced getting his first book, **Feeling Good**, published
+> * David’s advice to listeners interested in therapy
+> * how he approaches perfectionism, depression, and anxiety with patients
+> * the joys of a life free from the need to be special—
+
+#### [100: The New Micro-Neurosurgery — A Remarkable Interview with Dr. Mark Noble](http://feelinggood.libsyn.com/episode-100-the-new-micro-neurosurgery-a-remarkable-interview-with-dr-mark-noble)
 
 > Mark is a Stanford-trained geneticist and molecular biologist who is considered one of founders of the field of stem cell research. He has been developing a model of how TEAM-CBT affects the brain, and graciously agreed to present his model at our Tuesday evening Stanford TEAM-CBT seminar last week. Although his model is not yet fully polished and refined, and involves considerable speculation, it is an exciting first step, kind of like the time when astronomers broke away from the Catholic church and started trying to make sense of the universe. In this instance it is the “inner universe” Dr. Noble, all of us, are trying to understand. His model will evolve and get more and more refined over time.
 
 > Dr. Noble describes brain function in terms of the SNEFF model. This stands for Structures, Networks, Emotions, Frames and Filters, and links these concepts to the prefrontal cortex, amygdala and sympathetic nervous system. Then he describes the four steps of TEAM (T = Testing, E = Empathy, A = (Paradoxical) Agenda Setting, and M = Methods), and links each step to the SNEFF model, making interesting speculations on how TEAM works and what makes it so effective.
 
-> Dr. Noble also discusses David’s “fractal” theory about psychotherapy and relates that to brain function as well as to the mathematics of complex structures. He describes how and why some people get stuck in the “homeostasis” of chronic, refractory depression and explains why TEAM-CBT is usually able to trigger sudden and dramatic changes in the brain, as well as in the way the depressed and anxious individual thinks, feels, and behaves. He also explains why conventional talk therapy is unlikely to be helpful for individuals struggling with depression and anxiety, and may, in some cases, make the depression worse.
+> Dr. Noble also discusses David’s “fractal” theory about psychotherapy and relates that to brain function as well as to the mathematics of complex structures.
 
-Mon, 06 Aug 2018 08:00:00 +0000
+#### [107: Interview of Dr. Taylor Chesney — Secrets of TEAM-CBT with Kids](http://feelinggood.libsyn.com/107-interview-of-dr-taylor-chesney-secrets-of-team-cbt-with-kids)
 
+> Fabrice and David are pleased to chat with Dr. Taylor Chesney who is an expert in the treatment of children and teenagers with TEAM-CBT.
 
-### [107: Interview of Dr. Taylor Chesney — Secrets of TEAM-CBT with Kids](http://feelinggood.libsyn.com/107-interview-of-dr-taylor-chesney-secrets-of-team-cbt-with-kids)
+> Today she reveals the inside scoop on how to use TEAM-CBT with children and teenagers, and their parents.
 
-> Fabrice and David are pleased to chat with Dr. Taylor Chesney who is an expert in the treatment of children and teenagers with TEAM-CBT. Taylor was a member of Dr. Burns’ Tuesday group at Stanford and his Sunday hiking group for two years before returning to her home in New York in 2014. She opened the Feeling Good Institute NYC, where she and her colleagues offer individual and intensive treatment as well as training for mental health professionals (in person and online). Today she reveals the inside scoop on how to use TEAM-CBT with children and teenagers, and their parents.
+#### [114: The Upgrade Interview — How to Change Your Perspective](http://feelinggood.libsyn.com/114-the-upgrade-interview-how-to-change-your-perspective)
 
-Mon, 24 Sep 2018 08:00:00 +0000
+> Rebroadcast of a fabulous interview David did recently for “The Upgrade” Podcast (sponsored by the popular [Life Hacker website](https://lifehacker.com/) with hosts Melissa Kirsch and Alice Bradley on a range of topics, including:
 
+> * Why did you write **Feeling Good: The New Mood Therap**y?
+> * Is depression caused by a chemical imbalance in the brain?
+> * What’s your experience with electro-convulsive therapy (ECT)?
+> * Why did you give up your research career in biological psychiatry?
+> * How can you tease out your negative thoughts when you know you're depressed but you just can’t think of any thoughts?
+> * How does TEAM-CBT differ from conventional CBT?
+> * Can you use TEAM-CBT with severe problems, or is it only for individuals with mild mood disturbances?
 
-### [111: Stephanie James Interview (Part 2) — On the Road to Feeling Great](http://feelinggood.libsyn.com/092-stephanie-james-interview-part-2-on-the-road-to-feeling-great)
-
-This interview with Stephanie focused, in part, on the evolution of the new TEAM-CBT from traditional Cognitive Behavioral Therapy (CBT). Stephanie asks Dr. Burns questions on a wide range of topics, including:
-
-* How would you treat a case of social anxiety?
-* What is “therapeutic whitewashing” and how can therapists get over it? What should therapists do instead?
-* How would you work with violent incarcerated teenagers, such as gang members?
-* Why is it so important for therapists who are learning TEAM-CBT to check their egos at the door?
-* After you published your first book, Feeling Good, and the first research study on CBT was published, cognitive therapy swept the world. After your initial euphoria, your enthusiasm dimmed somewhat. Why? And what new direction did your research lead?
-* What are the most common errors that therapists make in thinking about the causes of therapeutic resistance?
-* How can you overcome a patient’s resistance to change?
-* Can TEAM-CBT work rapidly for someone with horrific abuse and decades of failed therapy?
-* How can you prevent relapses following the patient’s initial recovery?
-
-Mon, 22 Oct 2018 08:00:00 +0000
-
-
-### [114: The Upgrade Interview — How to Change Your Perspective](http://feelinggood.libsyn.com/114-the-upgrade-interview-how-to-change-your-perspective)
-
-Rebroadcast of a fabulous interview David did recently for “The Upgrade” Podcast (sponsored by the popular [Life Hacker website](https://lifehacker.com/) with hosts Melissa Kirsch and Alice Bradley on a range of topics, including:
-
-* Why did you write **Feeling Good: The New Mood Therap**y?
-* Is depression caused by a chemical imbalance in the brain?
-* What’s your experience with electro-convulsive therapy (ECT)?
-* Why did you give up your research career in biological psychiatry?
-* How can you tease out your negative thoughts when you know you're depressed but you just can’t think of any thoughts?
-* How does TEAM-CBT differ from conventional CBT?
-* Can you use TEAM-CBT with severe problems, or is it only for individuals with mild mood disturbances?
-
-Mon, 12 Nov 2018 09:00:00 +0000
-
-
-### [133: Finale — Goodbye Fabrice! Hello Rhonda!](http://feelinggood.libsyn.com/133-finale-goodbye-fabrice-hello-rhonda)
+#### [133: Finale — Goodbye Fabrice! Hello Rhonda!](http://feelinggood.libsyn.com/133-finale-goodbye-fabrice-hello-rhonda)
 
 > I am profoundly sad to say goodbye to my beloved friend and terrific podcast host, Dr. Fabrice Nye, who is leaving the podcast to start his own show this spring. I wish him well on his new podcast he'll be releasing soon. I'll share the specifics when they become available so loyal fans can tune in and follow him!
 
@@ -107,30 +90,7 @@ Mon, 12 Nov 2018 09:00:00 +0000
 
 > On the show, Fabrice and David share fondest memories of the show, and Rhonda talks about new directions as she becomes the host of the Feeling Good Podcast. Fabrice also gives some hints about his new show, which will be broadcast in French and English. Fabrice will describe and translate new developments in psychology research and relate the findings to our daily lives. 
 
-### [155: Treating Depression, Emotional Eating, and Self-Image Problems with TEAM-CBT](http://feelinggood.libsyn.com/155-treating-depression-emotional-eating-and-self-image-problems-with-team-cbt)
-
-Mon, 26 Aug 2019 08:00:00 +0000
-
-**The Story of Lorraine and “Anna”**
-
-> In today’s podcast, David and Rhonda interview Dr. Lorraine Wong, a board-certified clinical psychologist, and her patient, “Anna,” who sought treatment recently for depression, anxiety, and self-image / self-esteem issues. But first, David and Rhonda answer a question submitted by Estafonia, a “public image consultant,” who asks about the treatment of a woman who sees herself as “fat.”
-
-> Lorraine, Rhonda, David and Anna quickly diagnose the most likely cause of Estefania’s stuckness—she is trying to “help” her patient without first melting away her patient’s resistance. This is the cause of practically all therapeutic failure, and you’re not really doing TEAM-CBT if you don’t know how to eliminate the patient’s resistance.
-
-> Anna and Lorraine explain why the T = Testing and E = Empathy of TEAM were so critical to the success of the therapy. Anna says that Lorraine was, in fact, the first therapist “who **really** got me, and **really** understood me!”
-
-> Anna emphasizes the enormous importance of the A = Paradoxical Agenda Setting (aka Assessment of Resistance) as well. Lorraine helped Anna discover what was beautiful and awesome about all of her negative feelings, including severe depression, shame, anxiety, anger, loneliness, and even hopelessness. 
-
-> The Positive Reframing proved to be a positive shock to the system, and Anna’s symptoms started to improve significantly even before starting the M = Methods phase of the TEAM-CBT treatment.
-
-> Lorraine used David’s “Devil’s Advocate Technique,” to help Anna challenge the tempting thoughts that always triggered her overeating.
-
-> [Dr. Lorraine Wong](http://www.drlorrainewong.com) is a certified Level 4 TEAM-CBT therapist and practices at the Feeling Good Institute in Mountain View, California. She specializes in the treatment of body image concerns and emotional eating, as well as depression and anxiety, with TEAM-CBT.
-
-
-### [166: Escape from Physical Pain: An Interview with Dr. David Hanscom](http://feelinggood.libsyn.com/166-escape-from-physical-pain-an-interview-with-dr-david-hanscom)
-
-Mon, 11 Nov 2019 09:00:00 +0000
+#### [166: Escape from Physical Pain: An Interview with Dr. David Hanscom](http://feelinggood.libsyn.com/166-escape-from-physical-pain-an-interview-with-dr-david-hanscom)
 
 > In today's podcast, David and Rhonda interview Dr. David Hanscom, a renowned and controversial spine surgeon who gave up a large and lucrative surgical practice in favor of helping and educating people struggling with back pain, directing them on the path to recovery **without** surgery or drugs.
 
@@ -150,11 +110,7 @@ Mon, 11 Nov 2019 09:00:00 +0000
 * [Back in Control](http://www.BackInControl.com)
 * [Back in Control: A Surgeon’s Roadmap Out of Chronic Pain](https://backincontrol.com/book/back-in-control-a-spine-surgeons-roadmap-out-of-chronic-pain/)
 
-### [167: Feeling Great: Professor Mark Noble on TEAM-CBT and the Brain](http://feelinggood.libsyn.com/167-feeling-great-professor-mark-noble-on-team-cbt-and-the-brain)
-
-Mon, 18 Nov 2019 09:00:00 +0000
-
-![](https://feelinggood.com/wp-content/uploads/2019/10/Mark-Noble-002-3108933267-1570128112316.jpg)
+#### [167: Feeling Great: Professor Mark Noble on TEAM-CBT and the Brain](http://feelinggood.libsyn.com/167-feeling-great-professor-mark-noble-on-team-cbt-and-the-brain)
 
 > Today, Dr. Noble returns to discuss his illuminating ideas, and prevents an overview of his chapter entitled, "TEAM CBT and the Art of Micro-Neurosurgery: A Brain User's Guide to Feeling Great," which will appear in David's new book, **Feeling Great**, which will be released by PESI in 2020.
 
@@ -172,20 +128,17 @@ Mon, 18 Nov 2019 09:00:00 +0000
 
 > Dr. Noble also explains why Dr. Burns' concept of "Fractal Psychotherapy" is so complimentary to our understanding of the human brain, as are the other components of TEAM-CBT, including T = Testing, E = Empathy, A = Assessment of Resistance, and M = Methods.
 
-![](https://feelinggood.com/wp-content/uploads/2017/05/img_2401-411919755-1570127154114.jpg)
-
 > Dr. Noble also explains why conventional therapy--where the patient comes in week after week to vent about his / her problems--may actually make the patient worse. This is because the neurons that Fire Together every week, actually Wire Together. So, in simple neuroscience terms, conventional therapy may actually lead patients in the wrong direction, by strengthening the negative circuits in the brain.
 
-
-### [173: Dr. Amir Sabouri on the Human Side of Medicine](http://feelinggood.libsyn.com/173-dr-amir-sabouri-on-the-human-side-of-medicine)
+#### [173: Dr. Amir Sabouri on the Human Side of Medicine](http://feelinggood.libsyn.com/173-dr-amir-sabouri-on-the-human-side-of-medicine)
 
 Mon, 30 Dec 2019 09:00:00 +0000
 
 > We are joined today by Amir Sabouri, PhD, MD, a highly esteemed neurologist from Iran with extensive medical training in the United States in addition to his PhD research in molecular immunology in Japan. Amir specializes in the treatment of horrific neuromuscular disorders such as ALS (the dreaded Lou Gehrig's Disease) at one of our local Kaiser Hospitals here in the San Francisco Bay Area. In today's riveting and inspiring interview, Amir describes how he discovered that, in spite of his extensive technical training, his strongest and most effective medicine by far is sometimes a healing dose of humility and compassion, delivered with the Five Secrets of Effective Communication.
 
-I mentioned an experience I had as a medical student working in the medical outpatient clinic at Stanford under the direction of Dr. Allen Barbour, who wrote a beautiful book on the human side of medicine, [Caring for Patients](https://www.amazon.com/Caring-Patients-Critique-Medical-Model/dp/0804723893). I was assigned to a mailman who had been struggling with intractable angina, which is relentless chest pain due to problems with the blood supply to the heart. He was scheduled for one of the first open heart surgeries at Stanford. The idea was to improve the blood circulation to the heart, and the surgery was brand new and still somewhat experimental, and potentially quite risky.
+> I mentioned an experience I had as a medical student working in the medical outpatient clinic at Stanford under the direction of Dr. Allen Barbour, who wrote a beautiful book on the human side of medicine, [Caring for Patients](https://www.amazon.com/Caring-Patients-Critique-Medical-Model/dp/0804723893). I was assigned to a mailman who had been struggling with intractable angina, which is relentless chest pain due to problems with the blood supply to the heart. He was scheduled for one of the first open heart surgeries at Stanford. The idea was to improve the blood circulation to the heart, and the surgery was brand new and still somewhat experimental, and potentially quite risky.
 
-### [174: Sadness as Celebration featuring Steve & Barbara Reinhard](http://feelinggood.libsyn.com/174-sadness-as-celebration-featuring-steve-amp-barbara-reinhard)
+#### [174: Sadness as Celebration featuring Steve & Barbara Reinhard](http://feelinggood.libsyn.com/174-sadness-as-celebration-featuring-steve-amp-barbara-reinhard)
 
 > In the past, coaches have not been permitted to enter the TEAM-CBT certification program. However, Dr. Angela Krumm, who is the head of the FGI certification program changed that policy specifically so that Steve—and now, other certified coaches as well--can be certified in TEAM-CBT, and I applaud this change.
 
@@ -193,10 +146,7 @@ I mentioned an experience I had as a medical student working in the medical outp
 
 > Next, we asked Steve about the role of spirituality in his TEAM-CBT counseling, since he is a also a lay minister. I am convinced that the spiritual dimension can be important and powerful in therapy, and that at the moment of our deepest change, the change is not only psychological, emotional, and behavioral, but also spiritual, because we may suddenly “see” things from a much deeper perspective. Much in TEAM-CBT is easily integrated with spirituality. For example, the Acceptance Paradox is an inherently spiritual technique that can play an important role in recovery from depression and anxiety.
 
-Mon, 06 Jan 2020 09:00:00 +0000
-
-
-### [177: Our Beloved Fabrice returns! New Psychedelic Research!](http://feelinggood.libsyn.com/177-our-beloved-fabrice-returns-new-psychedelic-research)
+#### [177: Our Beloved Fabrice returns! New Psychedelic Research!](http://feelinggood.libsyn.com/177-our-beloved-fabrice-returns-new-psychedelic-research)
 
 **Rhonda, Fabrice, and David discuss psychedelic-assisted psychotherapy, Fabrice’s wonderful new marriage, his fascinating new podcast (**[http://peaceatlast.us/](http://peaceatlast.us/)**), and more.**
 
@@ -218,5 +168,3 @@ Mon, 06 Jan 2020 09:00:00 +0000
 * Article on how to have a <u>legal</u> psychedelic experience (but not necessarily a safe one): [https://psychedelic.support/resources/legal-ways-to-pursue-psychedelic-experiences/](https://psychedelic.support/resources/legal-ways-to-pursue-psychedelic-experiences/)
 * And finally... Here’s how to find my new podcast, to be launched on February 6, 2020: [http://peaceatlast.us/](http://peaceatlast.us/)
 Fabrice Nye [fabrice@life.net](mailto:fabrice@life.net)
-
-Mon, 27 Jan 2020 09:00:00 +0000
