@@ -4,11 +4,13 @@ A curated list of David Burns' contribution to Cognitive Behavioral Therapy (CBT
 
 At the moment, in each of these files are links to Feeling Good podcast episodes organized by topic.
 
-The initial idea is to make a high-level map of Dr. Burns' TEAM therapy.
+Simply listening has been transformative, already. I am so grateful for Dr. Burns' work, have a few of his books on order. I see a world-changing potential in these techniques, along with [Marshall Rosenberg's Nonviolent Communication](https://gitlab.com/prosocial-dynamic/nvc-rosenberg).
 
-There are a number of directions to go from there, like figuring out a set of universal human fears and anxieties, cognitive distorties, negative thoughts, etc. 
+The initial idea of this project is to make a high-level map of Dr. Burns' TEAM therapy. 
 
-Maybe tag all episodes w each distortion, method, and component of team.
+I'd also like to make an index of related research and history, including the works of [Albert Ellis](https://en.wikipedia.org/wiki/Albert_Ellis), and [Aaron T Beck](https://en.wikipedia.org/wiki/Aaron_T._Beck).
+
+There are a number of directions to go from there, like working on a set of universal human fears and anxieties, cognitive distorties, negative thoughts, etc.
 
 [FeelingGood.com](https://feelinggood.com/)
 [Training workshops](https://feelinggood.com/workshops/) 
@@ -16,8 +18,9 @@ Maybe tag all episodes w each distortion, method, and component of team.
 
 [Podcast Webpage](https://feelinggood.com/list-of-feeling-good-podcasts/) - [RSS Feed](https://feelinggood.libsyn.com/rss) - [apple podcasts](https://podcasts.apple.com/us/podcast/feeling-good-podcast-team-cbt-the-new-mood-therapy/id1171155453)
 
+[Feeling Good: The New Mood Therapy](https://en.wikipedia.org/wiki/Feeling_Good:_The_New_Mood_Therapy) - wikipedia
 
-## Directory
+## Episodes Index
 
 * [TEAM CBT](TEAM-CBT-therapy.md)
 * [5 Secrets of Effective Communication](5-secrets-effective-communication.md)
