@@ -4,7 +4,9 @@ A curated list of David Burns' contribution to Cognitive Behavioral Therapy (CBT
 
 Right now it's just a rip of the RSS feed, which I've cleaned up into an orderly\naviable structure, and trimmed down the show notes. 
 
-The idea is to make a high-level map of Dr. Burns' TEAM therapy.
+The initial idea is to make a high-level map of Dr. Burns' TEAM therapy.
+
+There are a number of directions to go from there, like mapping out universal human fears and anxieties, cognitive distorties, negative thoughts, etc. 
 
 [FeelingGood.com](https://feelinggood.com/)
 [Training workshops](https://feelinggood.com/workshops/) 
@@ -15,14 +17,14 @@ The idea is to make a high-level map of Dr. Burns' TEAM therapy.
 
 ## TOC
 
-* [TEAM CBT](TEAM-CBT-threapy.md)
-* [Needs and Self Defeating Beliefs (SDB)](#Needs-and-Self-Defeating-Beliefs--SDB)
-* [Negative and Positive Distortions](#Negative-and-Positive-Distortions)
+* [TEAM CBT](TEAM-CBT-therapy.md)
+* [Needs and Self Defeating Beliefs (SDB)](#needs-and-self-defeating-beliefs-sdb)
+* [Negative and Positive Distortions](#negative-and-positive-distortions)
 * [5 Secrets of Effective Communication](5-secrets-effective-communication.md)
 * [Tools and Techniques](tools-and-techniques.md)
 * [On Relationships](relationships.md)
-* [Addiction](#Addiction)
-* [OCD and TEAM CBT](#TEAM-CBT-and-OCD)
+* [Addiction](#addiction)
+* [OCD and TEAM CBT](#team-cbt-and-ocd)
 * [Anxiety and Depression](anxiety-depression.md)
 * [For Therapists](for-therapists.md)
 * [Interviews](interviews.md)
