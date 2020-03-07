@@ -1,22 +1,25 @@
 # 5 Secrets of Effective Communication
 
 
-[014: The Five Secrets of Effective Communication (Part 1)](#014-the-five-secrets-of-effective-communication-part-1)
-[015: The Five Secrets of Effective Communication (Part 2)](#015-the-five-secrets-of-effective-communication-part-2)
-[019: Ask David — The Defiant Child: A Secret All Parents Should Know](#019-ask-david-—-the-defiant-child-a-secret-all-parents-should-know)
-[065: The Five Secrets (Part 1) — Overview](#065-the-five-secrets-part-1-—-Overview)
-[066: The Five Secrets (Part 2) — Disarming Technique](#066-the-five-secrets-part-2-—-Disarming-Technique)
-[067: The Five Secrets (Part 3) — Thought and Feeling Empathy](#067-the-five-secrets-part-3-—-thought-and-feeling-empathy)
-[068: The Five Secrets (Part 4) — Inquiry](#068-the-five-secrets-part-4-—-inquiry)
-[071: Ask David — Expressing Anger, Narcissistic Bosses, Social Media Bullying](#071-Ask-David-—-Expressing-Anger-Narcissistic-Bosses-Social-Media-Bullying)
-[073: Ask David — Implementing the Five Secrets](#073-Ask-David-—-Implementing-the-Five-Secrets)
-[062: Ask David — The Five Secrets of Effective Communication &amp; Psychotherapy Homework](#062-Ask-David-—-The-Five-Secrets-of-Effective-Communication-amp-Psychotherapy-Homework)
-[098: Live Session (Lee) — Methods, Five Secrets (Part 3)](#098-Live-Session-Lee-—-Methods-Five-Secrets-Part-3)
-[126: The “Advanced” Secrets of Effective Communication](#126-The-“Advanced”-Secrets-of-Effective-Communication)
-[127: Communicating with the Opposite Side of the Political Divide](#127-Communicating-with-the-Opposite-Side-of-the-Political-Divide)
-[158: Changing the Focus: One of the Advanced Secrets of Effective Communication](#158-Changing-the-Focus-One-of-the-Advanced-Secrets-of-Effective-Communication)
-[146: When Helping Doesn’t Help!](#146-When-Helping-Doesn’t-Help)
-[154: Ask David Five Secrets Relationship Questions](#154-Ask-David-Five-Secrets-Relationship-Questions)
+### Feeling Good Podcast Episodes:
+
+* [014: The Five Secrets of Effective Communication (Part 1)](#014-the-five-secrets-of-effective-communication-part-1)
+* [015: The Five Secrets of Effective Communication (Part 2)](#015-the-five-secrets-of-effective-communication-part-2)
+* [019: Ask David — The Defiant Child: A Secret All Parents Should Know](#019-ask-david--the-defiant-child-a-secret-all-parents-should-know)
+* [036: Ask David — Empowering the Victim With the Five Secrets](#036-ask-david--empowering-the-victim-with-the-five-secrets)
+* [065: The Five Secrets (Part 1) — Overview](#065-the-five-secrets-part-1--overview)
+* [066: The Five Secrets (Part 2) — Disarming Technique](#066-the-five-secrets-part-2--disarming-technique)
+* [067: The Five Secrets (Part 3) — Thought and Feeling Empathy](#067-the-five-secrets-part-3--thought-and-feeling-empathy)
+* [068: The Five Secrets (Part 4) — Inquiry](#068-the-five-secrets-part-4--inquiry)
+* [071: Ask David — Expressing Anger, Narcissistic Bosses, Social Media Bullying](#071-ask-david--expressing-anger-narcissistic-bosses-social-media-bullying)
+* [073: Ask David — Implementing the Five Secrets](#073-ask-david--implementing-the-five-secrets)
+* [062: Ask David — The Five Secrets of Effective Communication &amp; Psychotherapy Homework](#062-ask-david--the-five-secrets-of-effective-communication--psychotherapy-homework)
+* [098: Live Session (Lee) — Methods, Five Secrets (Part 3)](#098-live-session-lee--methods-five-secrets-part-3)
+* [126: The “Advanced” Secrets of Effective Communication](#126-the-advanced-secrets-of-effective-communication)
+* [127: Communicating with the Opposite Side of the Political Divide](#127-communicating-with-the-opposite-side-of-the-political-divide)
+* [158: Changing the Focus: One of the Advanced Secrets of Effective Communication](#158-changing-the-focus-one-of-the-advanced-secrets-of-effective-communication)
+* [146: When Helping Doesn’t Help!](#146-when-helping-doesnt-help)
+* [154: Ask David Five Secrets Relationship Questions](#154-ask-david-five-secrets-relationship-questions)
 
 #### [014: The Five Secrets of Effective Communication (Part 1)](http://feelinggood.libsyn.com/014-the-five-secrets-of-effective-communication-part-1)
 
