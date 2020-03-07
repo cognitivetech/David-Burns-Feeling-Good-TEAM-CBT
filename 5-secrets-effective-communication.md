@@ -1,44 +1,65 @@
 # 5 Secrets of Effective Communication
 
-Mon, 12 Dec 2016 06:00:00 +0000
 
-### [014: The Five Secrets of Effective Communication (Part 1)](http://feelinggood.libsyn.com/014-the-five-secrets-of-effective-communication-part-1)
+[014: The Five Secrets of Effective Communication (Part 1)](#014-the-five-secrets-of-effective-communication-part-1)
+[015: The Five Secrets of Effective Communication (Part 2)](#015-the-five-secrets-of-effective-communication-part-2)
+[019: Ask David — The Defiant Child: A Secret All Parents Should Know](#019-ask-david-—-the-defiant-child-a-secret-all-parents-should-know)
+[065: The Five Secrets (Part 1) — Overview](#065-the-five-secrets-part-1-—-Overview)
+[066: The Five Secrets (Part 2) — Disarming Technique](#066-the-five-secrets-part-2-—-Disarming-Technique)
+[067: The Five Secrets (Part 3) — Thought and Feeling Empathy](#067-the-five-secrets-part-3-—-thought-and-feeling-empathy)
+[068: The Five Secrets (Part 4) — Inquiry](#068-the-five-secrets-part-4-—-inquiry)
+[071: Ask David — Expressing Anger, Narcissistic Bosses, Social Media Bullying](#071-Ask-David-—-Expressing-Anger-Narcissistic-Bosses-Social-Media-Bullying)
+[073: Ask David — Implementing the Five Secrets](#073-Ask-David-—-Implementing-the-Five-Secrets)
+[062: Ask David — The Five Secrets of Effective Communication &amp; Psychotherapy Homework](#062-Ask-David-—-The-Five-Secrets-of-Effective-Communication-amp-Psychotherapy-Homework)
+[098: Live Session (Lee) — Methods, Five Secrets (Part 3)](#098-Live-Session-Lee-—-Methods-Five-Secrets-Part-3)
+[126: The “Advanced” Secrets of Effective Communication](#126-The-“Advanced”-Secrets-of-Effective-Communication)
+[127: Communicating with the Opposite Side of the Political Divide](#127-Communicating-with-the-Opposite-Side-of-the-Political-Divide)
+[158: Changing the Focus: One of the Advanced Secrets of Effective Communication](#158-Changing-the-Focus-One-of-the-Advanced-Secrets-of-Effective-Communication)
+[146: When Helping Doesn’t Help!](#146-When-Helping-Doesn’t-Help)
+[154: Ask David Five Secrets Relationship Questions](#154-Ask-David-Five-Secrets-Relationship-Questions)
+
+#### [014: The Five Secrets of Effective Communication (Part 1)](http://feelinggood.libsyn.com/014-the-five-secrets-of-effective-communication-part-1)
 
 > In this podcast, David and Fabrice discuss five communication secrets that can rapidly transform conflict and misunderstanding into intimacy and trust. David describes an experience that suddenly changed the direction of his life and career when he was working with an insecure medical student from England early in his career. 
 
-#### The Five Secrets of Effective Communication can be remembered using the acronym, **EAR:**
+##### The Five Secrets of Effective Communication can be remembered using the acronym, **EAR:**
 
-##### **E = Empathy**
+**E = Empathy**
 
 * **The Disarming Technique:** You find truth in what the other person is saying, even if it seems illogical, self-serving, distorted, or just plain “wrong.”
 * **Thought and Feeling Empathy:** You summarize what the other person just said (**Thought Empathy**) and acknowledge how he or she is probably feeling, given what he or she just said (**Feeling Empathy**)
 * **Inquiry:** You as gentle, probing questions to learn more about what the other person is thinking and feeling.
 
-##### **A = Assertiveness**
+**A = Assertiveness**
 
 * **“I Feel” Statements:** You express your own feelings and ideas openly according to the formula, “I’m feeling X, Y, and Z right now,” where are X, Y and Z refer to any of a wide variety of feeling words, such as anxious, attacked, hurt, or sad.
 
-##### **R = Respect**
+**R = Respect**
 
 * **Affirmation (formerly called Stroking):** You convey warmth, caring and respect, even in the heat of battle
 David and Fabrice also describe the Five Secrets of Effective Communication and emphasize the incredible power of the Law of Opposites, with a vignette about a severely depressed patient who told David that he was “too young to be my doctor.”
 
-### [015: The Five Secrets of Effective Communication (Part 2)](http://feelinggood.libsyn.com/015-the-five-secrets-of-effective-communication-part-2)
-
-Mon, 19 Dec 2016 06:00:00 +0000
+#### [015: The Five Secrets of Effective Communication (Part 2)](http://feelinggood.libsyn.com/015-the-five-secrets-of-effective-communication-part-2)
 
 > If used skillfully, the Five Secrets can resolve nearly any relationship conflict and transform hostility, resentment and mistrust into intimacy and warmth, often with amazing speed. And although this may seem easy when you first learn about the Five Secrets, it’s extremely difficult in real world situations.
 
 > In this Podcast, David and Fabrice discuss a number of predictable emotional and mental errors nearly everyone makes when trying to use the Five Secrets to get close to someone he or she is at odds with.
 
 
-### [019: Ask David — The Defiant Child: A Secret All Parents Should Know](http://feelinggood.libsyn.com/019-ask-david-the-defiant-child-a-secret-all-parents-should-know)
-
-Mon, 16 Jan 2017 06:00:00 +0000
+#### [019: Ask David — The Defiant Child: A Secret All Parents Should Know](http://feelinggood.libsyn.com/019-ask-david-the-defiant-child-a-secret-all-parents-should-know)
 
 > Can the EAR techniques help a listener deal more effectively with a defiant, oppositional child. Dr. Burns reveals a fantastically helpful secret that he and his wife stumbled across in raising their own children. If you have ever struggled in your attempts to deal with an oppositional child or adolescent, you will find this podcast enlightening!
 
-### [065: The Five Secrets (Part 1) — Overview](http://feelinggood.libsyn.com/065-the-five-secrets-part-1-overview)
+
+#### [036: Ask David — Empowering the Victim With the Five Secrets](http://feelinggood.libsyn.com/036-ask-david-empowering-the-victim-with-the-five-secrets)
+
+> David and Fabrice begin by discussing the fact that sometimes people vacillate between other-blame (it’s all his/her fault) and self-blame (it’s all my fault), and emphasize that neither approach is helpful. If you blame the other person, the problem escalates and may turn to violence, but if, instead, you blame yourself, you’ll probably end up feeling worthless, guilty, unlovable, and depressed.
+
+> So what’s the solution to this dilemma? Dr. Burns encourages patients to use the [Five Secrets of Effective Communication](https://daviddburnsmd.files.wordpress.com/2017/04/the-five-secrets-v-1.pdf) and make a radical change in the way they communicate with others, along the lines of EAR. E stands for Empathy, A stands for Assertiveness, and R stands for Respect.
+
+> David gives five compelling examples of how to deal with people who REALLY ARE violent and abuse, including a raging psychiatric patient who was threatening the staff and on the verge of exploding, a serial killer who kidnapped a social worker who had attended one of David’s communication workshops, some drunken, abusive teenagers in a huge jeep who threatened David, an insulting, demoralizing, critical boss who put down everyone who worked with him. He includes with the story of a Lutheran minister,  Dietrich Bonhoeffer, who was imprisoned and mistreated by the Nazis during world war two.
+
+#### [065: The Five Secrets (Part 1) — Overview](http://feelinggood.libsyn.com/065-the-five-secrets-part-1-overview)
 
 The Five Secrets introduced in previous podcasts, David and Fabrice will bring them to life with clear explanations and vignettes, and will give you homework assignments so you can practice them, one at a time, between podcasts. 
 
@@ -53,17 +74,12 @@ David mentions that the Five Secrets exist on two levels.
 * on the other hand, they are profound spiritual techniques that require the death of the ego. 
 They require us to relearn our usual knee-jerk habits of arguing, blaming, and defending ourselves when we're at odds with another person.
 
-Mon, 04 Dec 2017 09:00:00 +0000
 
-### [066: The Five Secrets (Part 2) — Disarming Technique](http://feelinggood.libsyn.com/066-the-five-secrets-part-2-disarming-technique)
-
-Mon, 11 Dec 2017 18:40:00 +0000
+#### [066: The Five Secrets (Part 2) — Disarming Technique](http://feelinggood.libsyn.com/066-the-five-secrets-part-2-disarming-technique)
 
 > The definition of the Disarming Technique is finding truth in what the other person is saying, even if it seems blatantly wrong, or illogical, or exaggerated. And it's based on the Law of Opposites.
 
-### [067: The Five Secrets (Part 3) — Thought and Feeling Empathy](http://feelinggood.libsyn.com/067-the-five-secrets-part-3-thought-and-feeling-empathy)
-
-Mon, 18 Dec 2017 09:00:00 +0000
+#### [067: The Five Secrets (Part 3) — Thought and Feeling Empathy](http://feelinggood.libsyn.com/067-the-five-secrets-part-3-thought-and-feeling-empathy)
 
 > A great question, and David and Fabrice share their thinking. Many people, including therapists, are afraid of the Disarming Technique, thinking that something terrible will happen if they agree with someone who is criticizing them.
 
@@ -87,38 +103,28 @@ Mon, 18 Dec 2017 09:00:00 +0000
 
 > Making errors is totally okay in a training and learning situation, as well as in real therapy sessions--as long as you get feedback and try to correct your errors with humility. This can actually deepen the therapeutic relationship.
 
-### [068: The Five Secrets (Part 4) — Inquiry](http://feelinggood.libsyn.com/068-the-five-secrets-part-4-inquiry)
+#### [068: The Five Secrets (Part 4) — Inquiry](http://feelinggood.libsyn.com/068-the-five-secrets-part-4-inquiry)
 
 > David and Fabrice discuss Inquiry, the third of the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/11/Feeling-Words-Chart-with-Five-Secrets-v-2.pdf). Inquiry means asking gentle, probing questions to learn more about what the other person is thinking and feeling.
 
 > David encourages listeners (that includes you!) to try using Inquiry five times each day, even in superficial interactions with people in any setting, such as the grocery store, and gives examples of how to do this. Although this will not be the deepest application of Inquiry, the practice will give you a clear understanding of how this technique works.
 
-### [071: Ask David — Expressing Anger, Narcissistic Bosses, Social Media Bullying](http://feelinggood.libsyn.com/071-ask-david-expressing-anger-narcissistic-bosses-social-media-bullying)
+#### [071: Ask David — Expressing Anger, Narcissistic Bosses, Social Media Bullying](http://feelinggood.libsyn.com/071-ask-david-expressing-anger-narcissistic-bosses-social-media-bullying)
 
-Mon, 15 Jan 2018 09:00:00 +0000
+> * What do I do if I am using the Five Secrets and I feel angry? If I use the Disarming Technique, isn't there a danger that I might not express my own feelings? And isn't this the same as your "Hidden Emotion" Model, where we don't express our feelings due to excessive niceness?
+> * How would you use the Five Secrets if you're attacked in public by a narcissistic boss? Should you use the Disarming Technique? Won't that make you look weak? Should you only use the Five Secrets in one-on-one situations?
+> * Why is the Self-Monitoring technique rarely effective?
+> * How would you help young people who are being bullied in social media?
 
-* What do I do if I am using the Five Secrets and I feel angry? If I use the Disarming Technique, isn't there a danger that I might not express my own feelings? And isn't this the same as your "Hidden Emotion" Model, where we don't express our feelings due to excessive niceness?
-* How would you use the Five Secrets if you're attacked in public by a narcissistic boss? Should you use the Disarming Technique? Won't that make you look weak? Should you only use the Five Secrets in one-on-one situations?
-* Why is the Self-Monitoring technique rarely effective?
-* How would you help young people who are being bullied in social media?
-
-
-### [073: Ask David — Implementing the Five Secrets](http://feelinggood.libsyn.com/073-ask-david-implementing-the-five-secrets)
-
-Mon, 29 Jan 2018 09:00:00 +0000
+#### [073: Ask David — Implementing the Five Secrets](http://feelinggood.libsyn.com/073-ask-david-implementing-the-five-secrets)
 
 We address five questions submitted by listeners who listened to the recent series of podcasts on the Five Secrets of Effective Communication.
 
-
-## [062: Ask David — The Five Secrets of Effective Communication & Psychotherapy Homework](http://feelinggood.libsyn.com/062-ask-david-the-five-secrets-of-effective-communication-psychotherapy-homework)
-
-Mon, 13 Nov 2017 09:00:00 +0000
+#### [062: Ask David — The Five Secrets of Effective Communication & Psychotherapy Homework](http://feelinggood.libsyn.com/062-ask-david-the-five-secrets-of-effective-communication-psychotherapy-homework)
 
 > Will people manipulate you if they catch on to the fact that you're using the Five Secrets of Effective Communication? Is it fair to ask depressed patients to do psychotherapy homework between sessions when they're already struggling with a loss of motivation?
 
-## [098: Live Session (Lee) — Methods, Five Secrets (Part 3)](http://feelinggood.libsyn.com/episode-098-live-session-lee-methods-five-secrets-part-3)
-
-Mon, 23 Jul 2018 08:00:00 +0000
+#### [098: Live Session (Lee) — Methods, Five Secrets (Part 3)](http://feelinggood.libsyn.com/episode-098-live-session-lee-methods-five-secrets-part-3)
 
 > David and Jill do M = Methods, and show Lee how to respond to his wife more skillfully, using the Five Secrets of Effective Communication. Like everyone who is trying to learn the Five Secrets, Lee struggles with several blind spots:
 
@@ -133,8 +139,7 @@ David and Jill do lots of role-play practice with Lee and give him a homework as
 
 > At the end, Jill reads an emotional email from Lee describing how he relapsed and started arguing with his wife, and then remember to empathize use the Five Secrets instead, with an amazing result!
 
-
-### [126: The "Advanced" Secrets of Effective Communication](http://feelinggood.libsyn.com/126-ask-david-advanced-secrets-of-effective-communication)
+#### [126: The "Advanced" Secrets of Effective Communication](http://feelinggood.libsyn.com/126-ask-david-advanced-secrets-of-effective-communication)
 
 Mon, 04 Feb 2019 09:00:00 +0000
 
@@ -149,7 +154,7 @@ Mon, 04 Feb 2019 09:00:00 +0000
 > People who are serious about learning can read **[Feeling Good Together](https://www.amazon.com/Feeling-Good-Together-Troubled-Relationships/dp/0767920821)** and do the written exercises while you read!
 
 
-### [127: Communicating with the Opposite Side of the Political Divide](http://feelinggood.libsyn.com/127-communicating-with-the-opposite-side-of-the-political-divide)
+#### [127: Communicating with the Opposite Side of the Political Divide](http://feelinggood.libsyn.com/127-communicating-with-the-opposite-side-of-the-political-divide)
 
 Mon, 11 Feb 2019 09:00:00 +0000
 
@@ -161,7 +166,7 @@ Mon, 11 Feb 2019 09:00:00 +0000
 * [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf)
 * [Three Advanced Communication Techniques](https://feelinggood.com/wp-content/uploads/2019/01/Advanced-Empathy-Techniques-v-1.pdf)
 
-### [158: Changing the Focus: One of the Advanced Secrets of Effective Communication](http://feelinggood.libsyn.com/158-changing-the-focus-one-of-the-advanced-secrets-of-effective-communication)
+#### [158: Changing the Focus: One of the Advanced Secrets of Effective Communication](http://feelinggood.libsyn.com/158-changing-the-focus-one-of-the-advanced-secrets-of-effective-communication)
 
 Mon, 16 Sep 2019 08:00:00 +0000
 
@@ -181,7 +186,7 @@ Rhonda starts the podcast by reading a question from a podcast fan named Rajesh,
 
 > **_you have to be skillful with the Five Secrets of Effective Communication before trying this technique. That's a lot to ask, I know!_**
 
-### [146: When Helping Doesn't Help!](http://feelinggood.libsyn.com/146-when-helping-doesnt-help)
+#### [146: When Helping Doesn't Help!](http://feelinggood.libsyn.com/146-when-helping-doesnt-help)
 
 > Have you ever noticed that when you try to help or give advice they just keep complaining? This can be very frustrating--fortunately there's a fabulous solution to this universal problem. 
 
@@ -192,7 +197,7 @@ Rhonda starts the podcast by reading a question from a podcast fan named Rajesh,
 [online training with Jill!](http://www.feelinggoodinstitute.com/)
 
 
-### [154: Ask David Five Secrets Relationship Questions](http://feelinggood.libsyn.com/154-ask-david-relationship-problems-what-can-you-do-when-people-ghost-you-what-can-i-do-when-my-wife-doesnt-want-sex-and-more)
+#### [154: Ask David Five Secrets Relationship Questions](http://feelinggood.libsyn.com/154-ask-david-relationship-problems-what-can-you-do-when-people-ghost-you-what-can-i-do-when-my-wife-doesnt-want-sex-and-more)
 
 Mon, 19 Aug 2019 08:00:00 +0000
 
