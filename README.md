@@ -43,22 +43,24 @@ There are a number of directions to go from there, like working on a set of univ
 
 ## Books by David Burns
 
-![](https://i.imgur.com/9KluwNZ.png)
+<img src="https://i.imgur.com/9KluwNZ.png" align="right">
 
 * [Feeling Good – The New Mood Therapy](https://amzn.to/2z7FZPS)
   > Dr. Burns describes how to combat feelings of depression so you can develop greater self-esteem. This best-selling book has sold over 4 million copies worldwide to date. In a recent national survey of mental health professionals, Feeling Good was rated #1—out of a list of 1000 books—as the most frequently recommended self-help book on depression in the United States.
+* [The Feeling Good Handbook](https://amzn.to/2Hb4NLs)
+  > Dr. Burns shows how you can use cognitive therapy to overcome a wide variety of mood problems (such as depression, frustration, panic, chronic worry and phobias), and personal relationships problems (such as marital conflict or difficulties at work).
 * [Ten Days to Self-Esteem](https://amzn.to/2zftQsB)
   > In this 10-step program, Dr. Burns provides a practical, workable blueprint for breaking out of the bad moods that rob you of self-esteem. Dr. Burns provides you with clear, easy-to-understand instructions and specific tools gleaned from 20 years of systematic research and psychiatric practice.
 * [Ten Days To Self-Esteem – Leaders Manual](https://amzn.to/2YX2SoL)
   > Dr. Burns shows you how to develop the Ten Days program in hospitals, clinics, schools and other institutional settings.
-* [The Feeling Good Handbook](https://amzn.to/2Hb4NLs)
-  > Dr. Burns shows how you can use cognitive therapy to overcome a wide variety of mood problems (such as depression, frustration, panic, chronic worry and phobias), and personal relationships problems (such as marital conflict or difficulties at work).
+
+<img src="https://i.imgur.com/vS3aEdY.png" align="right">
+
+* [Feeling Good Together](https://amzn.to/2YSDP64)
+  > Dr. Burns shows you how to develop more rewarding and loving relationships with the people you care about.
 * [Intimate Connections](https://amzn.to/2Z6RDFv)
   > Dr. Burns shows you how to flirt, how to handle people who give you the run-a-round, and how to get people of the opposite sex (or the same sex, if that is your preference) to pursue you.
-* [Therapist’s Toolkit](https://feelinggood.com/resources-for-therapists-2/therapists-toolkit/)
-  > Available to mental health practitioners, this Toolkit is full of comprehensive, state-of-the-art assessment and treatment tools for every aspect of therapy.
 * [When Panic Attacks](https://amzn.to/2H91zYI)
-  > **Dr. Burns shows you how to overcome every conceivable form of anxiety, including**
   > * Chronic worrying
   > * Phobias, including Agoraphobia
   > * Panic Attacks
@@ -67,10 +69,9 @@ There are a number of directions to go from there, like working on a set of univ
   > * Obsessive-Compulsive Disorder (OCD)
   > * Post-Traumatic Stress Disorder (PTSD)
   > * Body Dysmorphic Disorder (BDD)
-* [Feeling Good Together](https://amzn.to/2YSDP64)
-  > Dr. Burns shows you how to develop more rewarding and loving relationships with the people you care about.
+* [Therapist’s Toolkit](https://feelinggood.com/resources-for-therapists-2/therapists-toolkit/)
+  > Available to mental health practitioners, this Toolkit is full of comprehensive, state-of-the-art assessment and treatment tools for every aspect of therapy.
 
-<img src="https://i.imgur.com/vS3aEdY.png" align="right">
 
 ## Cognitive Behavioral Therapy
 
