@@ -7,8 +7,8 @@
 > David argues that the fields needs to move from competing schools of therapy to a new, science-based, data-driven psychotherapy. He emphasizes that we’ve learned a lot from most of the schools of therapy, and that many have provided us with valuable insights about human nature as well as some useful treatment techniques. But now it’s time to move on, leaving all the schools of therapy behind. David acknowledges that this message may seem harsh or upsetting to some listeners, and apologizes for that ahead of time.
 
 Mon, 31 Jul 2017 05:00:00 +0000
-
-### [031: Live Session (Mark) — Agenda Setting Phase (Part 3)](http://feelinggood.libsyn.com/031-live-session-mark-agenda-setting-phase-part-3)
+ 
+#### [031: Live Session (Mark) — Agenda Setting Phase (Part 3)](http://feelinggood.libsyn.com/031-live-session-mark-agenda-setting-phase-part-3)
 
 > TEAM Therapists use a number of **Paradoxical Agenda Setting (PAS)** techniques designed to bring the patient’s subconscious resistance to conscious awareness. Then we melt the resistance away **before** attempting to change the way the patient is thinking and feeling. 
 
@@ -27,8 +27,8 @@ I (DB) have developed 15 or 20 PAS techniques, and Jill and I used several of 
 
 Mon, 10 Apr 2017 05:00:00 +0000
 
-
-### [033: Live Session (Mark) — Methods Phase (Part 5)](http://feelinggood.libsyn.com/033-live-session-mark-methods-phase-part-5)
+ 
+#### [033: Live Session (Mark) — Methods Phase (Part 5)](http://feelinggood.libsyn.com/033-live-session-mark-methods-phase-part-5)
 
 > David and Jill begin using M = Methods to challenge the Negative Thought Mark wants to work on first: “There must be something defective in my brain that prevents me from forming a loving relationship with my oldest son.” You may recall that Mark believed this thought 90%.
 
@@ -45,59 +45,44 @@ Mon, 10 Apr 2017 05:00:00 +0000
 [Mark's Recovery Circle](https://daviddburnsmd.files.wordpress.com/2017/04/mark-recovery-circle-15.pdf)
 
 Mon, 24 Apr 2017 05:00:00 +0000
-
-### [034: Live Session (Mark) — Methods Phase, cont'd. (Part 6)](http://feelinggood.libsyn.com/034-live-session-mark-methods-phase-contd-part-6)
+ 
+#### [034: Live Session (Mark) — Methods Phase, cont'd. (Part 6)](http://feelinggood.libsyn.com/034-live-session-mark-methods-phase-contd-part-6)
 
 > Using the Externalization of Voices, which is arguably the most powerful Cognitive Therapy technique ever created, David & Jill continue encouraging mark to challenge his negative thoughts. The goal of the Externalization of Voices is to create genuine and lasting change at the gut level.
 
 > Jill and David also use the Semantic Method and Re-attribution in this segment, and end with a brief illustration of how Mark might interact differently with his son using the Five Secrets of Effective Communication. David and Jill emphasize that this is the "External Solution," and that up to this point in the session they've been working on the "Internal Solution."
+ 
+#### [039: Uncovering Techniques (Part 1) — The Individual Downward Arrow](http://feelinggood.libsyn.com/039-uncovering-techniques-part-1-the-individual-downward-arrow)
 
-Mon, 01 May 2017 05:00:00 +0000
-
-### [039: Uncovering Techniques (Part 1) — The Individual Downward Arrow](http://feelinggood.libsyn.com/039-uncovering-techniques-part-1-the-individual-downward-arrow)
-
-> Cognitive Therapists believe that negative thoughts, or cognitions, can exist on two different levels. When you’re upset, you’ll have Automatic Negative Thoughts (ANTs) in the here and now, and they’ll usually be something like this:
-
-* **Depression**: You may be telling yourself that you’re a loser, or a failure, or that you’ll be miserable forever.
-* **Anxiety**: You’re probably telling yourself that you’re in danger, and that something terrible is about to happen. “When I get up to give my talk at my church group, my mind will probably go blank and I’ll make a total fool of myself!”
-* **Relationship conflicts**: You may be telling yourself that someone you’re ticked off at is a self-centered jerk who only cares about himself or herself and **shouldn’t** be that way!
+> Cognitive Therapists believe that negative thoughts, or cognitions, can exist on two different levels. When you’re upset, you’ll have Automatic Negative Thoughts (ANTs)
 
 > To help you pinpoint your own Self-Defeating Beliefs, David has created two uncovering techniques called the Individual Downward Arrow and the Interpersonal Downward Arrow, and Albert Ellis, the noted New York psychologist, created a third called the “What-If” Technique. 
-
-![](http://i.imgur.com/zceKP9j.png)\
-[presentation, powered by Microsoft Office](https://onedrive.live.com/embed?cid=4C33CD5BBD389DD2&resid=4C33CD5BBD389DD2!158&authkey=AMjeMe-n6Qmswxc&em=2&wdAr=1.3333333333333333)
 
 > Once they come to the “bottom of the barrel,” they will ask you to pause the recording, and see if you can pinpoint five or six or more of Harold’s Self-Defeating Beliefs, using the list of **[23 Common Self-Defeating Beliefs](https://daviddburnsmd.files.wordpress.com/2017/05/common-self-defeating-beliefs-version-3.pdf)**.
 
 [Uncovering Self-Defeating Beliefs (SDBs)–For Therapists (and Interested Patients) Only!](https://feelinggood.com/2017/05/05/uncovering-self-defeating-beliefs-sdbs-for-therapists-and-interested-patients-only/)
+ 
+#### [040: Uncovering Techniques (Part 2) — The Interpersonal Downward Arrow](http://feelinggood.libsyn.com/040-uncovering-techniques-part-2-the-interpersonal-downward-arrow)
 
-Mon, 05 Jun 2017 05:00:00 +0000
-
-### [040: Uncovering Techniques (Part 2) — The Interpersonal Downward Arrow](http://feelinggood.libsyn.com/040-uncovering-techniques-part-2-the-interpersonal-downward-arrow)
-
-> Psychoanalysts sometimes help people discover what they call “core conflicts.” According to the highly regarded psychoanalytic researcher **[Lester Luborsky, PhD](https://en.wikipedia.org/wiki/Lester_Luborsky),** an example of a core conflict might be, “My needs will never be met in my relationships with others.” If you believe this, it will tend to function as a self-fulfilling prophecy, so you’ll constantly feel hurt, lonely, and rejected, and perhaps resentful when you try to get close to others. And you probably won’t realize you’re creating your own painful interpersonal reality. You’ll think that this is just the way it is. Once you bring the painful system to conscious awareness, you can use a variety of powerful techniques to change your expectations and beliefs so you can enjoy far greater satisfaction and intimacy in your relationships with others.
+> Psychoanalysts sometimes help people discover what they call “core conflicts.” According to the highly regarded psychoanalytic researcher **[Lester Luborsky, PhD](https://en.wikipedia.org/wiki/Lester_Luborsky),** an example of a core conflict might be, “My needs will never be met in my relationships with others.” If you believe this, it will tend to function as a self-fulfilling prophecy, so you’ll constantly feel hurt, lonely, and rejected, and perhaps resentful when you try to get close to others. And you probably won’t realize you’re creating your own painful interpersonal reality. 
 
 > David and Fabrice will illustrate a powerful, high-speed method that to bring your own Interpersonal Self-Defeating Beliefs to conscious awareness. David has called it the Interpersonal Downward Arrow Technique. David and Fabrice will revisit the same clinical example from the last Podcast—the psychologist named Harold who felt devastated when his favorite patient unexpectedly committed suicide, but in this podcast they will examine how Harold sets up his relationships with his colleagues in a way that causes him to feel lonely, anxious, and resentful.
 
-> During the podcast, you may want to download and print **[“The Rules and the Roles” form](https://daviddburnsmd.files.wordpress.com/2017/05/interpersonal-downward-arrow-summary-sheet-v-1.pdf)** that David and Fabrice will be using during the podcast. There will be an exercise for you to do while you are listening. But don’t do the written exercise if you’re listening while driving in your car!
-
-Mon, 12 Jun 2017 05:00:00 +0000
-
-### [041: Uncovering Techniques (Part 3) — The What-If Technique](http://feelinggood.libsyn.com/httpsdaviddburnsmdfileswordpresscom201706feeling-good-podcast-episode-41mp3)
+[Interpersonal Downward Arrow: The Rules and the Roles*](https://daviddburnsmd.files.wordpress.com/2017/05/interpersonal-downward-arrow-summary-sheet-v-1.pdf)
+ 
+#### [041: Uncovering Techniques (Part 3) — The What-If Technique](http://feelinggood.libsyn.com/httpsdaviddburnsmdfileswordpresscom201706feeling-good-podcast-episode-41mp3)
 
 > The third uncovering technique is called the “What-If” Technique, developed by the late Dr. Albert Ellis. The What-If Technique can will help you identify a terrifying fantasy under the surface that fuels your fears. 
-
-### [042: Shame-Attacking Exercises](http://feelinggood.libsyn.com/042-shame-attacking-exercises)
+ 
+#### [042: Shame-Attacking Exercises](http://feelinggood.libsyn.com/042-shame-attacking-exercises)
 
 > The late Dr. Albert Ellis developed a technique to help individuals struggling with shyness. It’s called Shame-Attacking Exercises. Essentially, you do something bizarre in public to overcome your fear of making a fool of yourself; and you will probably discover that the world doesn’t come to end. When used skillfully, this method can be incredibly liberating.
 
 > However, there are several ethical considerations. First, before therapists can ask their patients to do Shame Attacking Exercises, therapists have to do Shame-Attacking Exercises themselves! David explains his first, terrifying Shame-Attacking Exercise in a Chinese restaurant in New York after giving a talk at a workshop sponsored by Dr. Ellis.
 
 * [**100 Shame Attacking Exercises**](https://feelinggood.com/wp-content/uploads/2019/01/Shame-Attackng-v-1.pdf)
-
-Mon, 26 Jun 2017 05:00:00 +0000
-
-### [048: Relapse Prevention Training](http://feelinggood.libsyn.com/048-relapse-prevention-training)
+ 
+#### [048: Relapse Prevention Training](http://feelinggood.libsyn.com/048-relapse-prevention-training)
 
 > What is a relapse? David defines a relapse as one minute or more of feeling crappy. Given that definition, we all relapse pretty much every day. However, some people can pop out of a bad mood really quickly, while others can get stuck in these “relapses” for weeks, months, or even years.
 
@@ -113,16 +98,16 @@ Mon, 26 Jun 2017 05:00:00 +0000
 * Patients need to **write down and challenge the Negative Thoughts** that will inevitably emerge at the time they relapse, such as “This relapse proves I’m hopeless after all,” or “This relapse proves the therapy didn’t work,” etc.
 
 > David and Fabrice illustrate step #4 using a powerful technique called **Externalization of Voices**. David has patients record this role play procedure on a cell phone or other recording device so they can play it and listen if needed during an actual relapse.
-
-### [060: Self-Monitoring](http://feelinggood.libsyn.com/060-self-monitoring)
+ 
+#### [060: Self-Monitoring](http://feelinggood.libsyn.com/060-self-monitoring)
 
 > David describes one of the more obscure methods called “Self-Monitoring”. He thinks of it as “Meditation in Daily Life.” The whole idea is to note a negative thought that suddenly pops into your mind, and then to track it, or count it, with some type of counting device, list the wrist counters golfers wear to keep track of their scores, and then to simply let go of the thought and continue with what you were doing, instead of dwelling on the thought and getting distracted and upset.
 
 > David explains that Self-Monitoring often is not effective, but occasionally it can be life changing for individuals who are struggling with anxiety, depression, or anger. 
 
 Mon, 30 Oct 2017 05:00:00 +0000
-
-### [064: Ask David — Quick Cure for Excessive Worrying!](http://feelinggood.libsyn.com/064-ask-david-quick-cure-for-excessive-worrying)
+ 
+#### [064: Ask David — Quick Cure for Excessive Worrying!](http://feelinggood.libsyn.com/064-ask-david-quick-cure-for-excessive-worrying)
 
 > David also emphasizes the importance of using all the four models, along with a Daily Mood Log, when treating any form of anxiety: **the Motivational Model, the Cognitive Model, the Exposure Model, and the Hidden Emotion Model**. To learn more about how these four powerful treatment models work, you can listen to Podcasts 022 through #028.
 
@@ -157,16 +142,16 @@ Mon, 30 Oct 2017 05:00:00 +0000
   > David explains that while this technique traces to the teachings of Freud, Freud might turn over in his grave and find it superficial or silly, since David simply tells anxious patients that they are suppressing or repressing something that’s bothering them, and insists they bring it to conscious awareness right away. David accepts this criticism, but also adds that the Hidden Emotion Technique works and frequently triggers complete recovery with patients who are only partially helped by the skillful use of cognitive techniques and exposure techniques.
 * [028: Scared Stiff — **The Motivational Model** (Part 6)](http://feelinggood.libsyn.com/028-scared-stiff-the-motivational-model-part-6)
   > The key is bringing the patient’s subconscious resistance to conscious awareness, and melting it away with paradoxical techniques. This is absolutely critical if you are hoping to see a complete elimination of symptoms in any type of anxiety.
-
-### [072: Secrets of Weight Loss — Make Good on Your New Year's Resolutions!](http://feelinggood.libsyn.com/072-secrets-of-weight-loss-make-good-on-your-new-years-resolutions)
+ 
+#### [072: Secrets of Weight Loss — Make Good on Your New Year's Resolutions!](http://feelinggood.libsyn.com/072-secrets-of-weight-loss-make-good-on-your-new-years-resolutions)
 
 You definitely do NOT want to lose weight. You probably DO want to be thin and attractive, and in great physical condition, but you DON'T want to lose weight. Do you know why? There are only two things that you can do to lose weight--diet and exercise. And they both suck!
 
 David describes two new, powerful techniques he has created for resolving this dilemma--the Double Paradox and Devil's Advocate Technique. David and Fabrice bring these techniques to life for you. If you are interested in losing weight, make sure you do the two exercises on paper while listening to this podcast.
 
 Mon, 22 Jan 2018 09:00:00 +0000
-
-### [074: Five Simple Ways to Boost Your Happiness (Part 1) — The Pleasure Predicting Sheet](http://feelinggood.libsyn.com/074-five-simple-ways-to-boost-your-happiness-part-1-the-pleasure-predicting-sheet)
+ 
+#### [074: Five Simple Ways to Boost Your Happiness (Part 1) — The Pleasure Predicting Sheet](http://feelinggood.libsyn.com/074-five-simple-ways-to-boost-your-happiness-part-1-the-pleasure-predicting-sheet)
 
 > David begins with a brief discussion of the philosophy of happiness, including the ancient Buddhist idea that everything in the universe is transitory and constantly changing, including our positive and negative moods, so the idea that you will be hopelessly depressed forever, or endless happy, are both illusions. Happiness, or pleasure, are transitory, and can only be achieved at specific moments. However, you can significantly increase the number and duration of the happy periods in your life.
 
@@ -177,10 +162,8 @@ Mon, 22 Jan 2018 09:00:00 +0000
 > You can also compare the satisfaction you experience when doing things by yourself versus the activities you do with others. Many depressed people with the Love Addiction believe they cannot be happy when they're alone, thinking they must be loved to feel truly happy and fulfilled. David describes a woman who tested this belief, and made an unexpected discovery, after her husband rejected her for another woman. [You can see her Pleasure Predicting Sheet if you click here.](https://feelinggood.com/wp-content/uploads/2018/01/Pleasure-Predicting-johns-love-v-1.pdf)
 
 > Finally, David gives an example of how a depressed, perfectionistic medical professor made another unexpected discovery with [a modified version of the Pleasure-Predicting Sheet.](https://feelinggood.com/wp-content/uploads/2018/01/Pleasure-Predicting-perfectionism-v-1.pdf)
-
-Mon, 05 Feb 2018 09:00:00 +0000
-
-### [075: Five Simple Ways to Boost Your Happiness (Part 2) — The Anti-Procrastination Sheet](http://feelinggood.libsyn.com/075-five-simple-ways-to-boost-your-happiness-part-2-the-anti-procrastination-sheet)
+ 
+#### [075: Five Simple Ways to Boost Your Happiness (Part 2) — The Anti-Procrastination Sheet](http://feelinggood.libsyn.com/075-five-simple-ways-to-boost-your-happiness-part-2-the-anti-procrastination-sheet)
 
 > Procrastination is one of the most common causes of unhappiness, and this bad habit is almost universal. We all put off the tasks we dread because they make us anxious, and because we're tempted to do other things that are way more rewarding. But the longer you procrastinate, the worse you feel, and this robs you of motivation. As a result, you fall into a vicious cycle where procrastination triggers negative feelings like depression, anxiety, and guilt, and your negative feelings, in turn, reduce your motivation and trigger more procrastination. A vicious cycle.
 
@@ -193,12 +176,12 @@ Mon, 05 Feb 2018 09:00:00 +0000
 > I'm going to make things simple for you using a tool I created years ago called the Anti-Procrastination Sheet! To make this podcast experiential, think about the **specific** task you've been putting off, like filing papers, preparing your taxes, cleaning the garage, a paper or report you have to prepare--anything at all.
 
 [The Anti-Procrastination Sheet*](https://feelinggood.com/wp-content/uploads/2018/01/anti-procrastination-sheet-blank-portrait-v-1.pdf) 
-
-### [076: Five Simple Ways to Boost Your Happiness (Part 3) — Confront a Fear](http://feelinggood.libsyn.com/076-five-simple-ways-to-boost-your-happiness-part-3-confront-a-fear)
-
-### [077: Five Simple Ways to Boost Your Happiness (Part 4) — Resolve Conflicts](http://feelinggood.libsyn.com/077-five-simple-ways-to-boost-your-happiness-part-4-resolve-conflicts)
-
-### [078: Five Simple Ways to Boost Your Happiness (Part 5) — Overcome Shame & Boost Self-Esteem](http://feelinggood.libsyn.com/078-five-simple-ways-to-boost-your-happiness-part-5-overcome-shame-amp-boost-self-esteem)
+ 
+#### [076: Five Simple Ways to Boost Your Happiness (Part 3) — Confront a Fear](http://feelinggood.libsyn.com/076-five-simple-ways-to-boost-your-happiness-part-3-confront-a-fear)
+ 
+#### [077: Five Simple Ways to Boost Your Happiness (Part 4) — Resolve Conflicts](http://feelinggood.libsyn.com/077-five-simple-ways-to-boost-your-happiness-part-4-resolve-conflicts)
+ 
+#### [078: Five Simple Ways to Boost Your Happiness (Part 5) — Overcome Shame & Boost Self-Esteem](http://feelinggood.libsyn.com/078-five-simple-ways-to-boost-your-happiness-part-5-overcome-shame-amp-boost-self-esteem)
 
 > David and Fabrice discuss a therapy session with a woman who had been hiding something about herself for nearly ten years due to feelings of shame. When she receives a phone call from someone in her church, her feelings of anxiety and shame hit the ceiling. Learn how she overcomes her feelings of angst and self-doubt using TEAM-CBT.
 
@@ -207,55 +190,51 @@ Mon, 05 Feb 2018 09:00:00 +0000
 * [Overcoming Toxic Shame: The Story of Melanie – Feeling Good](https://feelinggood.com/product/overcoming-toxic-shame-the-story-of-melanie/)  $119.00
   > This dramatic video features Dr. David Burns and his two co-therapists, Drs. Jill Levitt, and Angela Krumm, in a TEAM-CBT session with a colleague who has been struggling silently with hidden feelings of shame for nine years about her two broken marriages. It is, arguably, one of the most beautiful and inspiring psychotherapy videos ever produced. It comes with a booklet with exercises you can do as you watch, or you can simply watch it straight through with stopping. Originally marketed for $199, Dr. Burns recently purchased all the remaining inventory and is now offering this superb produce at a discounted introductory price. This video will be great for therapists wanting to learn state of the art treatment techniques as well as the general public wanting to overcome depression and anxiety and boost self-esteem.
 
-Mon, 05 Mar 2018 09:00:00 +0000
+#### [083: Role-Play Techniques (Part 1) — Externalization of Voices](http://feelinggood.libsyn.com/083-role-play-techniques-part-1-externalization-of-voices)
 
-### [083: Role-Play Techniques (Part 1) — Externalization of Voices](http://feelinggood.libsyn.com/083-role-play-techniques-part-1-externalization-of-voices)
-  > Today, he explains and demonstrates the Externalization of Voices, which is always combined with the Self-Defense Paradigm and the Acceptance Paradox. He is joined by Fabrice, of course, and "Sarah," one of the members of his Tuesday training group at Stanford. Sarah has volunteered to use a personal example in the podcast to help demonstrate the Externalization of Voices.
+> Today, he explains and demonstrates the Externalization of Voices, which is always combined with the Self-Defense Paradigm and the Acceptance Paradox. He is joined by Fabrice, of course, and "Sarah," one of the members of his Tuesday training group at Stanford. Sarah has volunteered to use a personal example in the podcast to help demonstrate the Externalization of Voices.
+ 
+#### [084: Role-Play Techniques (Part 2) — Paradoxical Double-Standard](http://feelinggood.libsyn.com/084-role-play-techniques-part-2-paradoxical-double-standard)
 
-Mon, 09 Apr 2018 08:00:00 +0000
+> David describes watching Dr. Maxy Maultsby do a demonstration of the Double Standard Technique when he was a psychiatric resident in the 1970s at the University of Pennsylvania medical school. He was quite surprised when the patient, who was severely depressed and suicidal following a break-up with her boyfriend, improved dramatically within an hour.
 
-### [084: Role-Play Techniques (Part 2) — Paradoxical Double-Standard](http://feelinggood.libsyn.com/084-role-play-techniques-part-2-paradoxical-double-standard)
-  > David describes watching Dr. Maxy Maultsby do a demonstration of the Double Standard Technique when he was a psychiatric resident in the 1970s at the University of Pennsylvania medical school. He was quite surprised when the patient, who was severely depressed and suicidal following a break-up with her boyfriend, improved dramatically within an hour. David modified the technique in several ways, and tonight will present what is probably the most powerful way to use this technique.
-  > 
-  > The technique is based on the idea that most of us operate on a double-standard. When we are upset about some failure, mistake, or inadequacy, we tend to beat up on ourselves mercilessly. But if we were talking to a dear friend with the exact same problem, we'd be far more compassionate and realistic. Once you make the patient aware of this double-standard, you ask if he or she would be willing to talk to himself or herself in the same way he or she would talk to a dear friend.
+> The technique is based on the idea that most of us operate on a double-standard. When we are upset about some failure, mistake, or inadequacy, we tend to beat up on ourselves mercilessly. But if we were talking to a dear friend with the exact same problem, we'd be far more compassionate and realistic. Once you make the patient aware of this double-standard, you ask if he or she would be willing to talk to himself or herself in the same way he or she would talk to a dear friend.
+ 
+#### [085: Role-Play Techniques (Part 3) — Forced Empathy](http://feelinggood.libsyn.com/085-role-play-techniques-part-3-forced-empathy)		
+ 
+#### [086: Role-Play Techniques (Part 4) — Feared Fantasy](http://feelinggood.libsyn.com/086-role-play-techniques-part-4-feared-fantasy)		
+ 
+#### [087: Role-Play Techniques (Part 5) — Devil's Advocate](http://feelinggood.libsyn.com/087-role-play-techniques-part-5-devils-advocate)
 
-### [085: Role-Play Techniques (Part 3) — Forced Empathy](http://feelinggood.libsyn.com/085-role-play-techniques-part-3-forced-empathy)		
-
-### [086: Role-Play Techniques (Part 4) — Feared Fantasy](http://feelinggood.libsyn.com/086-role-play-techniques-part-4-feared-fantasy)		
-
-### [087: Role-Play Techniques (Part 5) — Devil's Advocate](http://feelinggood.libsyn.com/087-role-play-techniques-part-5-devils-advocate)
-
-The Devil’s Advocate Technique is another one of the role-playing techniques in TEAM-CBT. You can use this technique for any habit or addiction, such as:
-
-* Drug or alcohol abuse
-* Overeating / binge eating
-* Shopping addiction
-* Internet addiction
-* And procrastination, which is our problem for today.
+> The Devil’s Advocate Technique is another one of the role-playing techniques in TEAM-CBT. You can use this technique for any habit or addiction, such as:
+> 
+> * Drug or alcohol abuse
+> * Overeating / binge eating
+> * Shopping addiction
+> * Internet addiction
+> * And procrastination, which is our problem for today.
 
 David and Fabrice are joined by Sara Shane, a member of David’s Tuesday evening psychotherapy Stanford training group for northern California mental health professionals. Sara has volunteered to demonstrate the technique to see if she can get some help with procrastination.
-
-### [088: Role-Play Techniques (Part 6) — Feared Fantasy, Expanded](http://feelinggood.libsyn.com/088-role-play-techniques-part-6-feared-fantasy-expanded)		
-
-### [091: The Celebration of Failure](http://feelinggood.libsyn.com/091-the-celebration-of-failure)
-  > I had a magical fantasies of what would happen once I was an “author.” The reality was quite the opposite and quite painful, with almost endless rejections accompanied by feelings of self-pity and defeat. For example, soon after publication, I learned my book was at the top of my publisher's "loser list." Then I discovered that magazines, newspapers, and TV and radio shows had no interest in it whatsoever.
  
-Mon, 04 Jun 2018 08:00:00 +0000
+#### [088: Role-Play Techniques (Part 6) — Feared Fantasy, Expanded](http://feelinggood.libsyn.com/088-role-play-techniques-part-6-feared-fantasy-expanded)		
+ 
+#### [091: The Celebration of Failure](http://feelinggood.libsyn.com/091-the-celebration-of-failure)
 
+> I had a magical fantasies of what would happen once I was an “author.” The reality was quite the opposite and quite painful, with almost endless rejections accompanied by feelings of self-pity and defeat. For example, soon after publication, I learned my book was at the top of my publisher's "loser list." Then I discovered that magazines, newspapers, and TV and radio shows had no interest in it whatsoever.
+ 
+#### [093: 50 Methods in 50 Minutes (Part 1)](http://feelinggood.libsyn.com/093-50-methods-in-50-minutes-part-1)
 
-### [093: 50 Methods in 50 Minutes (Part 1)](http://feelinggood.libsyn.com/093-50-methods-in-50-minutes-part-1)
-Mon, 18 Jun 2018 08:00:00 +0000
 > If I'm helping you overcome depression or anxiety, I'll ask you to fill out a Daily Mood Log, so you can list your negative thoughts and feelings at some specific moment when you were upset. You may be thinking, "I'm a failure," or "I should not have made that mistake," or "I'm unlovable."
+ 
+#### [094: 50 Methods in 50 Minutes (Part 2)](http://feelinggood.libsyn.com/094-50-methods-in-50-minutes-part-2)
 
-### [094: 50 Methods in 50 Minutes (Part 2)](http://feelinggood.libsyn.com/094-50-methods-in-50-minutes-part-2)
-Mon, 25 Jun 2018 08:00:00 +0000
 > Your negative thoughts will nearly always be distorted, but you'll still believe them, and that's why you're feeling depressed and anxious. And the moment you discover that your negative thoughts **aren't** true, you'll immediately feel better. But that's not going to be easy, because you've probably been giving yourself the same negative messages for years, or even decades.  And friends and family members, and even your therapist, may have been trying, unsuccessfully, to talk you out of them.
-
-### [095: The Recovery Circle](http://feelinggood.libsyn.com/095-the-recovery-circle)
+ 
+#### [095: The Recovery Circle](http://feelinggood.libsyn.com/095-the-recovery-circle)
 
 > How to select the techniques that will be most helpful for various kinds of problems, and how to individualize the treatment for each patient.
-
-### [109: David's Top 10 Techniques](http://feelinggood.libsyn.com/109-davids-top-10-techniques)
+ 
+#### [109: David's Top 10 Techniques](http://feelinggood.libsyn.com/109-davids-top-10-techniques)
 
 * **The list of Ten Cognitive Distortions**
 * **The Disarming Technique and Law of Opposites**
@@ -267,12 +246,8 @@ Mon, 25 Jun 2018 08:00:00 +0000
 * **Brief Mood Survey**
 * **Positive Reframing**
 * **The use of extended, two-hour therapy sessions**
-
-Mon, 08 Oct 2018 08:00:00 +0000
-
-### [112: Truth-Based Techniques](http://feelinggood.libsyn.com/112-truth-based-techniques)
-
-> Today we will compare and contrast the four Truth-Based Techniques, including:
+ 
+#### [112: Truth-Based Techniques](http://feelinggood.libsyn.com/112-truth-based-techniques)
 
 * Examine the Evidence
 * The Experimental Technique
@@ -282,21 +257,14 @@ Mon, 08 Oct 2018 08:00:00 +0000
 > These were among the first cognitive therapy techniques ever developed, and they were based on the work of Dr. Aaron Beck, from Philadelphia, as well as Dr. Albert Ellis, from New York. Dr. Ellis is the Grandfather of Cognitive Therapy, and he described many of these techniques in the 1950s. He called his treatment Rational Emotive Therapy, and it's still popular today. During the 1960s, Beck, who is considered the Father of Cognitive Therapy adapted the ideas of Dr. Ellis to the treatment of depression, and called his version of the treatment Cognitive Therapy.
 
 > Beck claimed that the negative thoughts of the depressed individual are the actual **cause** of the depression. He also emphasized that the disturbing negative thoughts of depressed patients are nearly always distorted and illogical; however, depressed individuals don’t realize that they’re fooling themselves, so they think their negative thoughts are absolutely valid. Beck also claimed that depression could be treated without drugs in many cases, and focused his treatment on challenging the patient's distorted negative thoughts.
+ 
+#### [130: Fractal Psychotherapy — The Power of Specificity](http://feelinggood.libsyn.com/130-fractal-psychotherapy-the-power-of-specificity)
 
-> David and Fabrice bring the four basic truth-based techniques to life with actual patient examples. They answer the question, "What's the difference between Examine the Evidence and the Experimental Technique?" And "How does the Survey Technique work?"
-
-> They emphasize the tremendous importance of warmth and empathy, as well as melting away patient resistance, before trying to implement any of these techniques. They also emphasize that these techniques, like all of the techniques, are powerful, and must be used with skill and compassion, or else they can backfire.
-
-### [130: Fractal Psychotherapy — The Power of Specificity](http://feelinggood.libsyn.com/130-fractal-psychotherapy-the-power-of-specificity)
-
-If you’re my patient, and you want help, I will ask you what specific problem you want help with. These are the four most common problems I see: depression, anxiety, relationship conflicts, or habits and addictions. Then I’ll ask you to zero in on one specific moment when you were struggling with that problem.
+> If you’re my patient, and you want help, I will ask you what specific problem you want help with. These are the four most common problems I see: depression, anxiety, relationship conflicts, or habits and addictions. Then I’ll ask you to zero in on one specific moment when you were struggling with that problem.
 
 * **if you want help with depression and low self-esteem**, I’ll ask you to describe one moment when you were feeling down. It could be any moment at all—it might even be right now, sitting in my office (or reading this text).
-  > “I’m no good. I shouldn’t have screwed up! I’m **always** doing that! I’ll feel like this forever.” These thoughts actually cause the feelings of depression, shame, inferiority, and hopelessness.
-* **if you want help with anxiety**, I will ask you to identify one specific moment when you were feeling anxious, worried, nervous, frightened or panicky. For example, you might have been feeling shy and insecure at a party, or terrified just before you had to take a test or give a talk at work.
+* **if you want help with anxiety**, I will ask you to identify one specific moment when you were feeling anxious, worried, nervous, frightened or panicky. 
 * **If you’ve been having trouble getting along with a friend or family member**, I would ask you to describe one brief interaction you’ve had with the person you’re at odds with, and I’d ask you to write down one specific thing they said to you, end exactly what you said next.
-
-> I recently did a one-day workshop on the treatment of unwanted habits and addictions, like procrastination, overeating, excessive cell phone use, or drinking too much. I encouraged the audience members to focus on one specific moment when they felt tempted to procrastinate, binge, or have a drink, or give in to their habit / addiction, and to write down all the Tempting Thoughts that were going through their minds
 
 > When you understand why you were feeling depressed or panicky or whatever at that specific moment, you will understand **everything** you need to know about why you get depressed, or panicky, or whatever at **any** moment of your life.
 
@@ -306,16 +274,16 @@ If you’re my patient, and you want help, I will ask you what specific problem 
 
 > Similarly, in “fractal psychotherapy,” we zero in on one very brief moment of your life, but the formula—or error—that caused you to become upset at that moment will always be the very same error you make **every** time you feet inferior or anxious or angry or tempted. And once you’ve changed at that one brief moment, you really will experience enlightenment! And your entire universe will become enlightened as well!
 
-> Fabrice provides another metaphor, that of a hologram. A hologram is a photograph that allows to display a fully 3-dimensional picture of an object. The hologram works differently from a regular photograph. Citing from Wikipedia, “When a photograph is cut in half, each piece shows half of the scene. When a hologram is cut in half, the whole scene can still be seen in each piece.” This remains true as you fragment the hologram into smaller and smaller pieces. 
+> Fabrice provides another metaphor, **that of a hologram**. 
 
 > * We create our personal reality at every moment of every day.
 > * We like to blame others for the problems in our relationships instead of pinpointing our own role in the problem.
 > * Intimacy, and enlightenment, require a painful death of the ego, or self. When you "look inward" for the cause of the problem, instead of blaming, you will find the answer you've been looking for--but the answer can sometimes be pretty painful.
 > * If you're willing to let your ego, or "self," die, you will receive a pretty awesome reward in heaven. But this heaven occurs when you are still alive!
 
-You'll see Rhonda model a more effective response using the [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf), as well as one of the advanced communication techniques called "[Multiple Choice Empathy](https://feelinggood.com/wp-content/uploads/2019/01/Advanced-Empathy-Techniques-v-1.pdf)."
-
-### [129: Flexing the Mindfulness Muscle](http://feelinggood.libsyn.com/129-flexing-the-mindfulness-muscle)
+[Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf)[Multiple Choice Empathy](https://feelinggood.com/wp-content/uploads/2019/01/Advanced-Empathy-Techniques-v-1.pdf)
+ 
+#### [129: Flexing the Mindfulness Muscle](http://feelinggood.libsyn.com/129-flexing-the-mindfulness-muscle)
 
 In this role-reversal of the traditional Feeling Good Podcast, Dr. David Burns and his special guest, Dr. Rhonda Barovsky, interview Dr. Fabrice Nye, your beloved podcast host, on the topic of Mindfulness and Meditation, which are currently popular with the therapeutic community.
 
@@ -334,8 +302,8 @@ Fabrice answers questions like these:
 The goal of mindfulness seems to be learning to deal more effectively with stressful thought and feelings. Does it deal with motivation and the resistance to change? TEAM-CBT makes us aware of the incredible importance of resistance, and provides many methods for reducing or eliminating resistance before you try any Method to “help” the patient. Does Mindfulness Meditation deal with resistance, or would it best be viewed as a method that can help individuals who are already strongly motivated to invest time and effort in their personal growth?
 
 Mon, 25 Feb 2019 09:00:00 +0000
-
-### [136: Mindfulness (Part 2) - Muscle or Myth?](http://feelinggood.libsyn.com/136-mindfulness-part-2-muscle-or-myth)
+ 
+#### [136: Mindfulness (Part 2) - Muscle or Myth?](http://feelinggood.libsyn.com/136-mindfulness-part-2-muscle-or-myth)
 
 > Rhonda, Fabrice and I received a number of thoughtful emails following our recent podcast on mindfulness meditation, which seems to be quite popular these days, but there some push-back from listeners who all did not agree that mindfulness is an effective way of combating negative thoughts and feelings.
 
@@ -349,8 +317,8 @@ Mon, 25 Feb 2019 09:00:00 +0000
 > Perhaps you could put it like this: Mindfulness is not a specific technique for specific problems, but a general method for psychological health. If you have a specific medical condition, you'll want to get a specific treatment. 
 
 Mon, 15 Apr 2019 08:00:00 +0000
-
-### [139: Can a Self-Help Book REALLY Help? Or Is It Just Hype?](http://feelinggood.libsyn.com/139-can-a-self-help-book-really-help-or-is-it-just-hype)
+ 
+#### [139: Can a Self-Help Book REALLY Help? Or Is It Just Hype?](http://feelinggood.libsyn.com/139-can-a-self-help-book-really-help-or-is-it-just-hype)
 
 #### **What's Bibliotherapy?**
 
@@ -401,8 +369,8 @@ Mon, 15 Apr 2019 08:00:00 +0000
 * Smith NM, Floyd MR, Jamison CS, and Scogin F (1997) Three-year follow-up of bibliotherapy for depression. J Consult Clin Psychol 65: 324-327.
 
 Mon, 06 May 2019 08:00:00 +0000
-
-### [149: Is Cognitive Therapy a Cure-All for Everything?](http://feelinggood.libsyn.com/149-is-cognitive-therapy-a-cure-all-for-everything)
+ 
+#### [149: Is Cognitive Therapy a Cure-All for Everything?](http://feelinggood.libsyn.com/149-is-cognitive-therapy-a-cure-all-for-everything)
 
 I recently published the results of a [survey of Feeling Good Podcast fans](https://feelinggood.com/2019/04/08/podcast-survey-for-you/) like yourself. The [findings were overwhelmingly positive](https://feelinggood.com/2019/04/11/feeling-good-podcast-survey-results-pure-gold-thank-you/) and illuminating. However, there were a few criticisms as well, like the excellent and thoughtful comments Rhonda and I will address in this podcast. I appreciate negative feedback, as this provides the greatest opportunities for growth and learning. 
 
@@ -414,8 +382,8 @@ Thank you, whoever you are, for this thought-provoking feedback. And you are SO 
 
 I have no doubt that many people have shared your concerns. Let us know what you think after you hear today's podcast! 
 
-
-### [122: How to Say "No!" — with Guest Jill Levitt, Ph.D.](http://feelinggood.libsyn.com/122-how-to-say-no-with-guest-jill-levitt-phd)
+ 
+#### [122: How to Say "No!" — with Guest Jill Levitt, Ph.D.](http://feelinggood.libsyn.com/122-how-to-say-no-with-guest-jill-levitt-phd)
 
 There are lots of reasons why you may have trouble saying **no**. Some are negative, but some are actually positive, including:
 

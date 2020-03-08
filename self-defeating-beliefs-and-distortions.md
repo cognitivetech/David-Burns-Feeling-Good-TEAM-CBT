@@ -6,6 +6,9 @@
 
 ## Negative and Positive Distortions
 
+[Cognitive Distortion](https://en.wikibedia.ru/wiki/Cognitive_distortion) - en.wikibedia.ru
+  > Cognitive distortions are thoughts that cause individuals to perceive reality inaccurately. According to the cognitive model of Beck, a negative outlook on reality, sometimes called negative schemas (or schemata), is a factor in symptoms of emotional dysfunction and poorer subjective well-being. Specifically, negative thinking patterns reinforce negative emotions and thoughts. During difficult circumstances, these distorted thoughts can contribute to an overall negative outlook on the world and a depressive or anxious mental state.
+
 #### [010: Negative and Positive Distortions (Part 1)](http://feelinggood.libsyn.com/010-negative-and-positive-distortions-part-1)
 
 > Common thought distortions that trigger negative feelings: All-or-Nothing Thinking, Overgeneralization, Mental Filter, and Discounting the Positive.
@@ -48,6 +51,9 @@ And much more!
 
 ## Needs and Self Defeating Beliefs (SDB)
 
+* [23 Common Self-Defeating Beliefs](https://daviddburnsmd.files.wordpress.com/2017/05/common-self-defeating-beliefs-version-3.pdf)
+* [Uncovering Self-Defeating Beliefs (SDBs)–For Therapists (and Interested Patients) Only!](https://feelinggood.com/2017/05/05/uncovering-self-defeating-beliefs-sdbs-for-therapists-and-interested-patients-only/)
+
 #### [038: Ask David — Negative Messages from Society](http://feelinggood.libsyn.com/038-ask-david-negative-messages-from-society)
 
 > A listener named Daisy describes her despair at being unable to have a baby
@@ -61,13 +67,39 @@ And much more!
 > * Popularity
 > * Good looks
 
-#### [046: All You Need Is Love... or Do You?](http://feelinggood.libsyn.com/046-all-you-need-is-love-or-do-you)
+#### [039: Uncovering Techniques (Part 1) — The Individual Downward Arrow](http://feelinggood.libsyn.com/039-uncovering-techniques-part-1-the-individual-downward-arrow)
 
-Mon, 24 Jul 2017 05:00:00 +0000
+> Cognitive Therapists believe that negative thoughts, or cognitions, can exist on two different levels. When you’re upset, you’ll have Automatic Negative Thoughts (ANTs)
+
+> To help you pinpoint your own Self-Defeating Beliefs, David has created two uncovering techniques called the Individual Downward Arrow and the Interpersonal Downward Arrow, and Albert Ellis, the noted New York psychologist, created a third called the “What-If” Technique. 
+
+> Once they come to the “bottom of the barrel,” they will ask you to pause the recording, and see if you can pinpoint five or six or more of Harold’s Self-Defeating Beliefs, using the list of **[23 Common Self-Defeating Beliefs](https://daviddburnsmd.files.wordpress.com/2017/05/common-self-defeating-beliefs-version-3.pdf)**.
+
+[Uncovering Self-Defeating Beliefs (SDBs)–For Therapists (and Interested Patients) Only!](https://feelinggood.com/2017/05/05/uncovering-self-defeating-beliefs-sdbs-for-therapists-and-interested-patients-only/)
+
+#### [040: Uncovering Techniques (Part 2) — The Interpersonal Downward Arrow](http://feelinggood.libsyn.com/040-uncovering-techniques-part-2-the-interpersonal-downward-arrow)
+
+> Psychoanalysts sometimes help people discover what they call “core conflicts.” According to the highly regarded psychoanalytic researcher **[Lester Luborsky, PhD](https://en.wikipedia.org/wiki/Lester_Luborsky),** an example of a core conflict might be, “My needs will never be met in my relationships with others.” If you believe this, it will tend to function as a self-fulfilling prophecy, so you’ll constantly feel hurt, lonely, and rejected, and perhaps resentful when you try to get close to others. And you probably won’t realize you’re creating your own painful interpersonal reality. 
+
+> David and Fabrice will illustrate a powerful, high-speed method that to bring your own Interpersonal Self-Defeating Beliefs to conscious awareness. David has called it the Interpersonal Downward Arrow Technique. David and Fabrice will revisit the same clinical example from the last Podcast—the psychologist named Harold who felt devastated when his favorite patient unexpectedly committed suicide, but in this podcast they will examine how Harold sets up his relationships with his colleagues in a way that causes him to feel lonely, anxious, and resentful.
+
+[Interpersonal Downward Arrow: The Rules and the Roles*](https://daviddburnsmd.files.wordpress.com/2017/05/interpersonal-downward-arrow-summary-sheet-v-1.pdf)
+
+#### [041: Uncovering Techniques (Part 3) — The What-If Technique](http://feelinggood.libsyn.com/httpsdaviddburnsmdfileswordpresscom201706feeling-good-podcast-episode-41mp3)
+
+> The third uncovering technique is called the “What-If” Technique, developed by the late Dr. Albert Ellis. The What-If Technique can will help you identify a terrifying fantasy under the surface that fuels your fears. 
+
+#### [046: All You Need Is Love... or Do You?](http://feelinggood.libsyn.com/046-all-you-need-is-love-or-do-you)
 
 > Fabrice asks David whether love is a human need? David describes hearing Dr. Aaron Beck proclaim that love is not an **adult** human need, and feeling shocked, during one of Dr. Beck’s cognitive therapy seminars in the 1970s. Although initially skeptical, David did a number of experiments to test this belief, and came to a startling conclusion. David describes the impact of needing love on his depressed and anxious patients, including lonely individuals who were constantly being rejected in the dating scene.
 
 > You’ll find this podcast provocative, controversial, and hopefully interesting. We’ll also include a survey you can complete below, indicating your thoughts about this topic!
+
+#### [079: Live Session (Daisy) — The Secret of a "Meaningful" Life](http://feelinggood.libsyn.com/079-live-session-daisy-the-secret-of-a-meaningful-life)
+
+##### "I'm a failure. . . I'm not good enough. . . My life will be empty and meaningless without . . . "
+
+> Several months ago I received a compelling email from a young woman named Daisy who asked about the message we get from society that lead to suffering. Fabrice and I were so inspired that we devoted an entire Feeling Good Podcast to it [(Podcast 038: Negative Messages from Society](https://feelinggood.com/2017/05/22/038-ask-david-negative-messages-from-society/))
 
 #### [118: Self-Defeating Beliefs (Part 1) — The Beliefs That Defeat You](http://feelinggood.libsyn.com/118-self-defeating-beliefs-part-1-the-beliefs-that-defeat-you)
 

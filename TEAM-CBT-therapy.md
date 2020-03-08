@@ -7,6 +7,8 @@
 
 * [Daily Mood Log](daily-mood-log.md)
 * [TEN COGNITIVE DISTORTIONS](https://daviddburnsmd.files.wordpress.com/2017/04/distortions-v-18.pdf)
+* [23 Common Self-Defeating Beliefs](https://daviddburnsmd.files.wordpress.com/2017/05/common-self-defeating-beliefs-version-3.pdf)
+* [Uncovering Self-Defeating Beliefs (SDBs)–For Therapists (and Interested Patients) Only!](https://feelinggood.com/2017/05/05/uncovering-self-defeating-beliefs-sdbs-for-therapists-and-interested-patients-only/)
 
 #### [001: Introduction to the TEAM Model](http://feelinggood.libsyn.com/001-introduction-to-the-team-model)
  
@@ -246,11 +248,7 @@ David and Jill do M = Methods, and show Lee how to respond to his wife more skil
 
 ##### "I'm a failure. . . I'm not good enough. . . My life will be empty and meaningless without . . . "
 
-Sound familiar? Sometimes, the messages we get from society, and the impossible standards that we accept, can lead to enormous, intense suffering.
-
 > Several months ago I received a compelling email from a young woman named Daisy who asked about the message we get from society that lead to suffering. Fabrice and I were so inspired that we devoted an entire Feeling Good Podcast to it [(Podcast 038: Negative Messages from Society](https://feelinggood.com/2017/05/22/038-ask-david-negative-messages-from-society/)) The theme of the podcast, as well as the three subsequent podcasts, was how to pinpoint and modify the Self-Defeating Beliefs (SDBs) that lead to depression, anxiety, and relationship problems.
-
-Today, Fabrice and I are thrilled and honored to present an entire TEAM-CBT therapy session with Daisy, along with her husband Zane.
 
 #### [137: Rapid Trauma Treatment: The Sherri Story (Part 1)](http://feelinggood.libsyn.com/137-rapid-trauma-treatment-the-sherri-story-part-1)
 

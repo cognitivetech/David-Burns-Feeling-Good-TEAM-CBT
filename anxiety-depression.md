@@ -95,40 +95,34 @@ The cognitive model of anxiety is based on three powerful ideas:
 
 > You may recall that the Outcome Resistance for anxiety disorders usually results Magical Thinking—the anxious patient may be suffering intensely and asking for help, but secretly believes that something terrible will happen if the treatment is successful and the anxiety disappears. In other words, most anxious individuals are convinced that the anxiety is protecting him or her from some catastrophic event.
 
+### [042: Shame-Attacking Exercises](http://feelinggood.libsyn.com/042-shame-attacking-exercises)
+
+> The late Dr. Albert Ellis developed a technique to help individuals struggling with shyness. It’s called Shame-Attacking Exercises. Essentially, you do something bizarre in public to overcome your fear of making a fool of yourself; and you will probably discover that the world doesn’t come to end. When used skillfully, this method can be incredibly liberating.
+
+* [**100 Shame Attacking Exercises**](https://feelinggood.com/wp-content/uploads/2019/01/Shame-Attackng-v-1.pdf)
+
 #### [064: Ask David — Quick Cure for Excessive Worrying!](http://feelinggood.libsyn.com/064-ask-david-quick-cure-for-excessive-worrying)
 
 **How would you treat excessive worrying?** a listener asks.
 
-> David describes a new patient who had struggled with 53 years of failed therapy for excessive, relentless worrying, and describes how she was "totally and irreversibly cured" in just two therapy sessions, which was the "good news." The Hidden Emotion Technique was the key to her remarkably rapid recovery. David explains that the "even better news" was that her relentless worrying would come back over and over in the future, and that this was actually a really good thing!
+> David describes a new patient who had struggled with 53 years of failed therapy for excessive, relentless worrying, and describes how she was "totally and irreversibly cured" in just two therapy sessions, which was the "good news." The Hidden Emotion Technique was the key to her remarkably rapid recovery. 
 
 > David also emphasizes the importance of using all the four models, along with a Daily Mood Log, when treating any form of anxiety: **the Motivational Model, the Cognitive Model, the Exposure Model, and the Hidden Emotion Model**. 
 
-> The DSM5 is the **Diagnostic and Statistical Manual of Mental Disorders**, published by the American Psychiatric Association. It is used to assign diagnoses to patients. David critiques the DSM5  diagnostic criteria for "Generalized Anxiety Disorder" (GAD) and emphasizes that while worrying exists, and can easily be treated in most cases, the "mental disorder" called Generalized Anxiety Disorder does not exist, and is simply a fantasy made up by the psychiatrists who have created the DSM.
+> David critiques the DSM5 diagnostic criteria for "Generalized Anxiety Disorder" (GAD) and emphasizes that while worrying exists, and can easily be treated in most cases, the "mental disorder" called Generalized Anxiety Disorder does not exist, and is simply a fantasy made up by the psychiatrists who have created the DSM.
 
 #### [128: Intense Social Anxiety — What Can I Do?](http://feelinggood.libsyn.com/128-intense-social-anxiety-what-can-i-do)
 
-##### You CAN Defeat Shyness!
-
-> Lately, I've gotten lots of emails from podcast fans who struggle with shyness, which is categorized in DSM5 (The Diagnostic and Statistical Manual of Mental Disorders) as "Social Anxiety Disorder." This is one of my favorite things to treat, since I struggled with practically EVERY type of social anxiety early in my life, so I really know how it feels and how to defeat it. It's incredibly common. In fact, when I give workshops for mental health professionals, I sometimes ask how many of them have struggled with shyness or public speaking anxiety, and nearly all the hands go up.
-
-##### "flavors" of social anxiety recognized by the American Psychiatric Association, including:
-
-* Shyness
-* Public Speaking Anxiety
-* Performance Anxiety (such as intense anxiety during a musical or athletic performance)
-* Shy Bladder (or Bowel) Syndrome. This is the fear of peeing or pooing in a public restroom, for fear you'll freeze up or make too much noise and others will notice.
-* Test Anxiety
-
 > One common theme is the fear that others will notice your anxiety or poor performance and judge you. Another common source of suffering is shame of feeling like you are inherently flawed and will be seen as defective or even as insane by others. Sometimes, these fears become so extreme that they can significantly interfere with relationships and leisure-time activities as well as work.
 
-> Five powerful Interpersonal Exposure Techniques that Dan might want to do under the supervision of his therapist, including:
+**Interpersonal Exposure Techniques**
 > * The Survey Technique
 > * Self-Disclosure
 > * The Experimental Technique
 > * Shame Attacking Exercises
 > * The Feared Fantasy Technique
 
-> David and Fabrice also discuss how to address patient and therapist fears of using powerful exposure techniques, and how the avoidance of exposure can sabotage the treatment.
+> David and Fabrice also discuss how to address patient and therapist fears of using powerful exposure techniques
 > * Dangling the Carrot
 > * The Gentle Ultimatum
 > * Sitting with Open Hands
@@ -139,10 +133,6 @@ The cognitive model of anxiety is based on three powerful ideas:
 [100 Shame Attacking Exercises](https://feelinggood.com/wp-content/uploads/2019/01/Shame-Attackng-v-1.pdf)!
 
 #### [134: Smashing Shyness (Part 1) — Beating Social Anxiety](http://feelinggood.libsyn.com/134-smashing-shyness-part-1-beating-social-anxiety)
-
-> How do you distinguish a personality disorder - say, for example, Avoidant Personality Disorder, from "just" (and I don't mean that in a derogatory way) being depressed and anxious?
-
-> David explains that there is no such thing as “Avoidant Personality Disorder.” It is just an imaginary concept created by the American Psychiatric Association, and is applied to individuals with shyness that is so severe that it causes significant problems in their lives.
 
 *email from “[Abdul](https://en.wikipedia.org/wiki/Abdul),” a podcast fan who’s been struggling with shyness.*
 
@@ -176,8 +166,7 @@ The cognitive model of anxiety is based on three powerful ideas:
 > * **Identify the Distortions.** 
 > * **The Straightforward Technique.** 
 > * **The Cost-Benefit Analysis.** 
-> * **The Individual Downward Arrow Technique.** 
-> They were able to identify five of Jason’s Self-Defeating Beliefs that are extremely common in Social Anxiety, including: 
+> * **The Individual Downward Arrow Technique.** identifying five of Jason’s Self-Defeating Beliefs that are extremely common in Social Anxiety, including: 
 >   * Perfectionism
 >   * Perceived Perfectionism
 >   * The Approval Addiction
@@ -255,7 +244,7 @@ This week, we include the conclusion of the session, with A = Paradoxical Agenda
 
 > In today’s podcast, David and Rhonda interview Dr. Lorraine Wong, a board-certified clinical psychologist, and her patient, “Anna,” who sought treatment recently for depression, anxiety, and self-image / self-esteem issues. But first, David and Rhonda answer a question submitted by Estafonia, a “public image consultant,” who asks about the treatment of a woman who sees herself as “fat.”
 
-> Lorraine, Rhonda, David and Anna quickly diagnose the most likely cause of Estefania’s stuckness—she is trying to “help” her patient without first melting away her patient’s resistance. This is the cause of practically all therapeutic failure, and you’re not really doing TEAM-CBT if you don’t know how to eliminate the patient’s resistance.
+> Lorraine, Rhonda, David and Anna quickly diagnose the most likely cause of Estefania’s stuckness—she is trying to “help” her patient without first melting away her patient’s resistance
 
 > Anna and Lorraine explain why the T = Testing and E = Empathy of TEAM were so critical to the success of the therapy. Anna says that Lorraine was, in fact, the first therapist “who **really** got me, and **really** understood me!”
 

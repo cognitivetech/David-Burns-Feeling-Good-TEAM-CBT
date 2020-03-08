@@ -1,7 +1,12 @@
-# 5 Secrets of Effective Communication
+# 5 Secrets of Effective Communication on David Burns's Feeling Good Podcast
 
+[Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf)
 
-### Feeling Good Podcast Episodes:
+[Feelings Chart + Five Secrets of Effective Communication (EAR)](https://feelinggood.com/wp-content/uploads/2017/11/Feeling-Words-Chart-with-Five-Secrets-v-2.pdf) 
+
+[Advanced Empathy Techniques](https://feelinggood.com/wp-content/uploads/2019/01/Advanced-Empathy-Techniques-v-1.pdf)
+
+### 5 Secrets Episodes
 
 * [014: The Five Secrets of Effective Communication (Part 1)](#014-the-five-secrets-of-effective-communication-part-1)
 * [015: The Five Secrets of Effective Communication (Part 2)](#015-the-five-secrets-of-effective-communication-part-2)
@@ -64,19 +69,15 @@ David and Fabrice also describe the Five Secrets of Effective Communication and 
 
 #### [065: The Five Secrets (Part 1) — Overview](http://feelinggood.libsyn.com/065-the-five-secrets-part-1-overview)
 
-The Five Secrets introduced in previous podcasts, David and Fabrice will bring them to life with clear explanations and vignettes, and will give you homework assignments so you can practice them, one at a time, between podcasts. 
+> *In the first two Five Secrets podcasts, David and Fabrice will be joined [by Helen Yeni-Komshian, MD.](http://www.dryeni.com) Helen was David's student during her psychiatric residency training at Stanford roughly 15 years ago, and she now teaches David's at weekly psychotherapy training group at Stanford, and is on the adjunct faculty there.*
 
-*In the first two Five Secrets podcasts, David and Fabrice will be joined [by Helen Yeni-Komshian, MD.](http://www.dryeni.com) Helen was David's student during her psychiatric residency training at Stanford roughly 15 years ago, and she now teaches David's at weekly psychotherapy training group at Stanford, and is on the adjunct faculty there.*
-
-[Five Secrets of Effective Communication.](https://feelinggood.com/wp-content/uploads/2017/11/Feeling-Words-Chart-with-Five-Secrets-v-2.pdf) 
+[Feelings Chart + Five Secrets of Effective Communication (EAR)](https://feelinggood.com/wp-content/uploads/2017/11/Feeling-Words-Chart-with-Five-Secrets-v-2.pdf) 
 
 Lots of dedication and practice will be necessary if you hope to use them skillfully and effectively in your relationships with the people you care about. 
 
 David mentions that the Five Secrets exist on two levels. 
 * One the one hand, they are sophisticated and powerful psychological techniques that can change your life and your relationships with others. 
 * on the other hand, they are profound spiritual techniques that require the death of the ego. 
-They require us to relearn our usual knee-jerk habits of arguing, blaming, and defending ourselves when we're at odds with another person.
-
 
 #### [066: The Five Secrets (Part 2) — Disarming Technique](http://feelinggood.libsyn.com/066-the-five-secrets-part-2-disarming-technique)
 
@@ -157,15 +158,9 @@ David and Jill do lots of role-play practice with Lee and give him a homework as
 
 #### [127: Communicating with the Opposite Side of the Political Divide](http://feelinggood.libsyn.com/127-communicating-with-the-opposite-side-of-the-political-divide)
 
-Mon, 11 Feb 2019 09:00:00 +0000
-
 ##### Can the Five Secrets of Effective Communication Help Us in this Era of Intensely Polarized Politics?
 
 > “How can you talk to someone with whom you fundamentally disagree? My Mom is a big fan of the current regime (Trump) and I’m horrified by what’s happened in the past two years and what’s coming. It’s hard for me to get past my rage at her. . . intensely distorted and not-reality based beliefs, fed by right-wing media. To be clear, she thinks exactly the same about my beliefs and information sources. I feel so stuck. . . and I would love to repair this relationship with her before she dies.”
-
-* [Eileen's Relationship Journal](https://feelinggood.com/wp-content/uploads/2019/01/Relationship-Journal-pocdast-question-v-1.pdf)
-* [Five Secrets of Effective Communication](https://feelinggood.com/wp-content/uploads/2017/04/the-five-secrets-v-1.pdf)
-* [Three Advanced Communication Techniques](https://feelinggood.com/wp-content/uploads/2019/01/Advanced-Empathy-Techniques-v-1.pdf)
 
 #### [158: Changing the Focus: One of the Advanced Secrets of Effective Communication](http://feelinggood.libsyn.com/158-changing-the-focus-one-of-the-advanced-secrets-of-effective-communication)
 
