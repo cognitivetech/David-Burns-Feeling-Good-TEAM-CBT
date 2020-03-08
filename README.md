@@ -43,6 +43,10 @@ There are a number of directions to go from there, like working on a set of univ
 * [Therapy Wars: REBT vs. TEAM-CBT](http://feelinggood.libsyn.com/101-ask-david-therapy-wars-rebt-vs-team-cbt)
 * [TEAM vs CBT](https://feelinggood.com/team-vs-cbt/)
   > I am very proud to have contributed to the birth and evolution of cognitive behavioral therapy (CBT), which was one of the most important developments of 20th century psychiatry and psychology. When I first wrote my first book, Feeling Good, CBT was practically unknown. Now it has become one of the most widely practiced and researched forms of psychotherapy throughout the world. Aaron Beck, MD, Albert Ellis, PhD, and a host of other brilliant pioneers helped to create CBT, and we owe all of them an enormous debt of gratitude.
+* [047: Tools, Not Schools, of Therapy](http://feelinggood.libsyn.com/047-tools-not-schools-of-therapy)
+  > The title of David's TEAM-CBT eBook for therapists is [Tools, Not Schools, of Therapy](https://daviddburnsmd.files.wordpress.com/2014/01/aaa-ebook-order-form-for-website-v-1.pdf). David explains that the field of psychotherapy is dominated by numerous schools of therapy that compete like religions, or even cults, each claiming to have the answer to emotional suffering. So you’ve got the psychodynamic school, and the psychoanalytic school, the Adlerian school, the Beckian cognitive therapy school, the Jungian school, and tons more, including EMDR, behavior therapy, humanistic therapy, ACT, TMT, EMT, and so forth.
+  > 
+  > David argues that the fields needs to move from competing schools of therapy to a new, science-based, data-driven psychotherapy. 
 
 ### Feeling Good Podcast Directory
 

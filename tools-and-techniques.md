@@ -6,8 +6,6 @@
 
 > David argues that the fields needs to move from competing schools of therapy to a new, science-based, data-driven psychotherapy. He emphasizes that we’ve learned a lot from most of the schools of therapy, and that many have provided us with valuable insights about human nature as well as some useful treatment techniques. But now it’s time to move on, leaving all the schools of therapy behind. David acknowledges that this message may seem harsh or upsetting to some listeners, and apologizes for that ahead of time.
 
-Mon, 31 Jul 2017 05:00:00 +0000
- 
 #### [031: Live Session (Mark) — Agenda Setting Phase (Part 3)](http://feelinggood.libsyn.com/031-live-session-mark-agenda-setting-phase-part-3)
 
 > TEAM Therapists use a number of **Paradoxical Agenda Setting (PAS)** techniques designed to bring the patient’s subconscious resistance to conscious awareness. Then we melt the resistance away **before** attempting to change the way the patient is thinking and feeling. 
