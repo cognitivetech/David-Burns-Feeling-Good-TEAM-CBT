@@ -1,9 +1,12 @@
 # Team Therapy
 
-* [Example Daily Mood Log](https://jameslstolz.com/wp-content/uploads/2012/10/Dailymood.pdf) - [1](https://c4aa.org/wp-content/uploads/2017/07/David-Burns-CBT-Daily-Mood-Log.pdf) 
-* [TEN COGNITIVE DISTORTIONS](https://daviddburnsmd.files.wordpress.com/2017/04/distortions-v-18.pdf)
+* [Team Model](#team-model)
+* [Live Therapy Sessions](#live-therapy-sessions)
 
 ### Team Model
+
+* [Daily Mood Log](daily-mood-log.md)
+* [TEN COGNITIVE DISTORTIONS](https://daviddburnsmd.files.wordpress.com/2017/04/distortions-v-18.pdf)
 
 #### [001: Introduction to the TEAM Model](http://feelinggood.libsyn.com/001-introduction-to-the-team-model)
  
@@ -108,7 +111,7 @@ The three basic principles of CBT:
 
 > David and Fabrice discuss the rationale for the Recovery Circle--you never know what technique is going to work, since people are quite different. One of the many unique and arguably powerful aspects of TEAM-CBT is the use of more than 75 techniques drawn from more than a dozen schools of therapy.
 
-[CLICK HERE FOR TEN COGNITIVE DISTORTIONS](https://daviddburnsmd.files.wordpress.com/2017/04/distortions-v-18.pdf)
+* [TEN COGNITIVE DISTORTIONS](https://daviddburnsmd.files.wordpress.com/2017/04/distortions-v-18.pdf)
  
 #### [034: Live Session (Mark) — Methods Phase, cont'd. (Part 6)](http://feelinggood.libsyn.com/034-live-session-mark-methods-phase-contd-part-6)
 
@@ -248,8 +251,6 @@ Sound familiar? Sometimes, the messages we get from society, and the impossible 
 > Several months ago I received a compelling email from a young woman named Daisy who asked about the message we get from society that lead to suffering. Fabrice and I were so inspired that we devoted an entire Feeling Good Podcast to it [(Podcast 038: Negative Messages from Society](https://feelinggood.com/2017/05/22/038-ask-david-negative-messages-from-society/)) The theme of the podcast, as well as the three subsequent podcasts, was how to pinpoint and modify the Self-Defeating Beliefs (SDBs) that lead to depression, anxiety, and relationship problems.
 
 Today, Fabrice and I are thrilled and honored to present an entire TEAM-CBT therapy session with Daisy, along with her husband Zane.
-
-#### [101: Ask David — Therapy Wars: REBT vs. TEAM-CBT](http://feelinggood.libsyn.com/101-ask-david-therapy-wars-rebt-vs-team-cbt)
 
 #### [137: Rapid Trauma Treatment: The Sherri Story (Part 1)](http://feelinggood.libsyn.com/137-rapid-trauma-treatment-the-sherri-story-part-1)
 
