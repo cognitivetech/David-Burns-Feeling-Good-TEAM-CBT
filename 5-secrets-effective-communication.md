@@ -6,6 +6,19 @@
 
 [Advanced Empathy Techniques](https://feelinggood.com/wp-content/uploads/2019/01/Advanced-Empathy-Techniques-v-1.pdf)
 
+### Books
+
+* [Feeling Good Together](https://amzn.to/2YSDP64)
+  > We all have someone we can’t get along with—whether it’s a friend or colleague who complains constantly; a relentlessly critical boss; an obnoxious neighbor; a teenager who pouts and slams doors, all the while insisting she’s not upset; or a loving, but irritating spouse. In Feeling Good Together, Dr. David Burns presents Cognitive Interpersonal Therapy, a radical new approach that will help you transform troubled, conflicted relationships into successful, happy ones.
+* [Intimate Connections](https://amzn.to/2Z6RDFv)
+  > In this breakthrough book, Dr. David Burns, M.D., author of the bestselling Feeling Good, applies the proven principles of Cognitive Therapy to eliminating the negative thinking and low self-esteem that causes loneliness and shyness. With sensible and sensitive advice, case histories, and revealing exercises:
+  > • Pinpoint and rid yourself of attitudes that keep you apart from others
+  > • Master the techniques that make you feel and look more attractive
+  > • Deal with people who give you the runaround
+  > • Resist romantic temptations not in your best interest
+  > • Release inhibitions to conquer performance anxiety and enhance sexual pleasure
+  > • Develop fulfilling relationships . . . and mor
+
 ### 5 Secrets Episodes
 
 * [014: The Five Secrets of Effective Communication (Part 1)](#014-the-five-secrets-of-effective-communication-part-1)
