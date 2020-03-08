@@ -1,4 +1,4 @@
-# Needs, Self Defeating Beliefs, Negative and Positive Cognitive Distortions
+# Cognitive Distortions and Self Defeating Beliefs (SDB)
 
 * [Negative and Positive Distortions](#negative-and-positive-distortions)
 * [Needs and Self Defeating Beliefs (SDB)](#needs-and-self-defeating-beliefs-sdb)
