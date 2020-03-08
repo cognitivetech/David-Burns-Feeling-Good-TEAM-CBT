@@ -38,11 +38,9 @@ Stephanie is a superb therapist and dynamic radio personality from Colorado. It 
 
 #### [117: Stephanie James Interview (Part 3) — The Trifecta of Feeling Terrific](http://feelinggood.libsyn.com/117-stephanie-james-interview-part-3-the-trifecta-of-feeling-terrific)
 
-> Stephanie also recently interviewed our beloved colleague, Dr. Matthew May, a psychiatrist who is a phenomenal TEAM therapist. [Click here if you'd like to take a look and listen](https://www.thesparkpod.com/episodes/029-breakthrough-to-healing-with-dr-matthew-may/.
-
-> Matt has worked with Fabrice and me on our podcasts--you may remember the amazing and inspiring podcasts featuring [live therapy with Marilyn.](https://feelinggood.com/2017/08/07/049-live-session-marilyn-testing-empathy-part-1/)
-
 > Stephanie is a outstanding therapist and radio personality from Colorado. It was an honor to be on her show on three occasions. Stephanie is co-authoring a book on how to live a “spark-filled life.” It should be completed soon, so you’ll likely be hearing much more from Stephanie during 2019!
+
+[The Spark 029: Breakthrough to Healing with Dr. Matthew May](https://www.thesparkpod.com/episodes/the-spark-029-breakthrough-to-healing-with-dr-matthew-may/).
 
 #### [099: Lisa Nicole Bell Interview — Behind the Brilliance](http://feelinggood.libsyn.com/099-lisa-nicole-bell-interview-behind-the-brilliance)
 

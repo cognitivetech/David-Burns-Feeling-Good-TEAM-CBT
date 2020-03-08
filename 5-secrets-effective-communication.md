@@ -27,17 +27,17 @@
 
 ##### The Five Secrets of Effective Communication can be remembered using the acronym, **EAR:**
 
-**E = Empathy**
+### E = Empathy
 
 * **The Disarming Technique:** You find truth in what the other person is saying, even if it seems illogical, self-serving, distorted, or just plain “wrong.”
 * **Thought and Feeling Empathy:** You summarize what the other person just said (**Thought Empathy**) and acknowledge how he or she is probably feeling, given what he or she just said (**Feeling Empathy**)
 * **Inquiry:** You as gentle, probing questions to learn more about what the other person is thinking and feeling.
 
-**A = Assertiveness**
+### A = Assertiveness
 
 * **“I Feel” Statements:** You express your own feelings and ideas openly according to the formula, “I’m feeling X, Y, and Z right now,” where are X, Y and Z refer to any of a wide variety of feeling words, such as anxious, attacked, hurt, or sad.
 
-**R = Respect**
+### R = Respect
 
 * **Affirmation (formerly called Stroking):** You convey warmth, caring and respect, even in the heat of battle
 David and Fabrice also describe the Five Secrets of Effective Communication and emphasize the incredible power of the Law of Opposites, with a vignette about a severely depressed patient who told David that he was “too young to be my doctor.”
@@ -92,7 +92,7 @@ They require us to relearn our usual knee-jerk habits of arguing, blaming, and d
 > * **Feeling Empathy:** Given what you just said, I can imagine you might be feeling X, Y, and Z. (X, Y, and Z would be words from the [Feeling Words](https://feelinggood.com/wp-content/uploads/2017/11/Feeling-Words-Chart-with-Five-Secrets-v-2.pdf) list.)
 > * **Inquiry:** Did I get that right? Can you tell me more about what you've been thinking and feeling?
 
-> These techniques are invaluable in therapy, and go back to the pioneering work of Karl Rodgers, who argued that therapist empathy is the necessary and sufficient condition for personality change. Although subsequent research did not confirm this idea, there is still little argument that empathy is absolutely necessary for good therapeutic work.
+> These techniques are invaluable in therapy, and go back to the pioneering work of Carl Rodgers, who argued that [therapist empathy is the necessary and sufficient condition for personality change](https://www.researchgate.net/profile/Keith_Tudor/publication/258191573_Understanding_Empathy/links/57450b2f08ae9f741b408583/Understanding-Empathy.pdf). Although subsequent research did not confirm this idea, there is still little argument that empathy is absolutely necessary for good therapeutic work.
 
 ##### Other common errors when using Thought and Feeling Empathy include:
 * Helping
@@ -144,8 +144,6 @@ David and Jill do lots of role-play practice with Lee and give him a homework as
 
 #### [126: The "Advanced" Secrets of Effective Communication](http://feelinggood.libsyn.com/126-ask-david-advanced-secrets-of-effective-communication)
 
-Mon, 04 Feb 2019 09:00:00 +0000
-
 > *Learning to use the Five Secrets skillfully requires strong motivation and lots of practice, but the benefits can be tremendous.* 
 
 > In this podcast, we discuss [three advanced techniques](https://feelinggood.com/wp-content/uploads/2019/01/Advanced-Empathy-Techniques-v-1.pdf):
@@ -171,23 +169,15 @@ Mon, 11 Feb 2019 09:00:00 +0000
 
 #### [158: Changing the Focus: One of the Advanced Secrets of Effective Communication](http://feelinggood.libsyn.com/158-changing-the-focus-one-of-the-advanced-secrets-of-effective-communication)
 
-Mon, 16 Sep 2019 08:00:00 +0000
+> I have often seen that estranged friends or family members do not talk or resolve a trivial conflict for years because one or both of them have ego issues or have fear of rejection. This problem of unfairness may even exist between a demanding parent and the child, ranging from secretly resenting to not talking at all. They might come face to face in family occasions or professional settings in case of friendship and bear the discomfort, but not attempt to reconcile.
 
-David and Rhonda are joined again today by David's neighbor, friend, and hiking buddy, Dave Fribush. We appreciate his superb technical skills and thank Dave for his support of our podcasts!
-
-Rhonda starts the podcast by reading a question from a podcast fan named Rajesh, who wrote:
-  > I have often seen that estranged friends or family members do not talk or resolve a trivial conflict for years because one or both of them have ego issues or have fear of rejection. This problem of unfairness may even exist between a demanding parent and the child, ranging from secretly resenting to not talking at all. They might come face to face in family occasions or professional settings in case of friendship and bear the discomfort, but not attempt to reconcile.
-
-[Three advanced secrets - podcast #126](https://feelinggood.com/2019/02/04/126-how-to-communicate-with-someone-who-refuses-to-talk-to-you/).
-
-* **Changing the Focus.** This technique can be tremendously helpful when there’s an “elephant” in the room.
-
-> Today we take a deeper dive into Changing the Focus. 
-> "When you use Changing the Focus, you gently point out what's happening, and focus on your feelings, and drawing out the other person's feelings, instead of continuing in the same pattern of arguing or avoidance."
+**Changing the Focus.** This technique can be tremendously helpful when there’s an “elephant” in the room.
+  > Today we take a deeper dive into Changing the Focus. 
+  > "When you use Changing the Focus, you gently point out what's happening, and focus on your feelings, and drawing out the other person's feelings, instead of continuing in the same pattern of arguing or avoidance."
 
 > Although this technique can be tremendously helpful, it is very challenging, so I have written two memos explaining the technique in greater detail, with examples. One is for [therapists](https://feelinggood.com/wp-content/uploads/2019/08/Changing-the-Focus-for-therapists-v-3.pdf) and one is for the [general public](https://feelinggood.com/wp-content/uploads/2019/08/Changing-the-Focus-for-the-general-public-v-2.pdf). 
 
-> **_you have to be skillful with the Five Secrets of Effective Communication before trying this technique. That's a lot to ask, I know!_**
+> **_you have to be skillful with the Five Secrets of Effective Communication before trying this technique_**
 
 #### [146: When Helping Doesn't Help!](http://feelinggood.libsyn.com/146-when-helping-doesnt-help)
 
@@ -197,32 +187,11 @@ Rhonda starts the podcast by reading a question from a podcast fan named Rajesh,
 
 > We also discussed a closely related and possibly controversial theme--is it okay to use the Five Secrets just to get someone to stop complaining, especially if you're angry with that person and they tend to complain most or all of the time? Do you always have to use the Five Secrets in a totally sincere manner? 
 
-[online training with Jill!](http://www.feelinggoodinstitute.com/)
-
-
 #### [154: Ask David Five Secrets Relationship Questions](http://feelinggood.libsyn.com/154-ask-david-relationship-problems-what-can-you-do-when-people-ghost-you-what-can-i-do-when-my-wife-doesnt-want-sex-and-more)
 
-Mon, 19 Aug 2019 08:00:00 +0000
-
-> **Kate** asks: I love listening to your podcasts and am currently reading my way through your book, **Feeling Good**. I appreciate that you have written and spoken about relationship problems at length, but in what I have read and heard so far I do not see how this can apply to the current climate of casual dating and hook up culture which is fueled by apps such as Tinder.
-
-> I think this may be a significant problem for many of your listeners, and would greatly appreciate your thoughts, as well as any practical steps on how to date in today's world.
-
-> **Eli** asks: For some reason, when it comes to sex, it seems that I have a lot of self-worth wrapped up in my sex drive. I’m realizing when my wife and I have sex I feel like I’m on top of the world afterwards. I feel so positive the following few days and I feel mentally and emotionally healthy. But it’s devastatingly real that the reverse is true as well... when we don’t have sex (and particularly when I reach out and she’s not in the mood) and when a week or so passes that we don’t have sex, I find myself feeling very insecure. I feel ugly, unlovable and generally less valuable as a person.
-
-> **Susan** asks: You seem like a good person to ask this question partly because you are a man. Someone I know, I won’t say whom, told me he felt emasculated when I asked him to take my car to the gas station to get the wipers replaced.
-
-> To me “emasculated“ is more of a concept or a thought. I will not get into toxic masculinity and the patriarchy, but I am curious what you think. By the way, this person and I have benefited a lot from your relationship journal exercise, thankfully we did not need it this time :-)
-
-> **Knaidu** asks: Here’s a specific example which occurred whilst I was trying to use the disarming technique. 
-
-> I was meeting a friend of mine, and was a running a few min late for our lunch appointment. I couldn't send her text to let her know as I was driving. I arrived at least 5 min late. When I arrived she immediately said
-> 
-> "I knew it all along, you really don't want to meet with me or actually have lunch with me!”
-> 
-> I tried to explain that I was stuck in a traffic jam and couldn't text, but it didn’t work. Here’s what I said:
->
->  “Please Mrs. X, I was stuck in a traffic jam and that's why I am late. Have I ever said I don't want to meet with you? And if I didn't why have I bothered to arrive at all, I mean I could have just not arrived if I didn't want to meet you!"
-> 
-> After I said that she stormed off.
-
+* *I appreciate that you have written and spoken about relationship problems at length, but in what I have read and heard so far I do not see how this can apply to the current climate of casual dating and hook up culture which is fueled by apps such as Tinder.*
+  > I think this may be a significant problem for many of your listeners, and would greatly appreciate your thoughts, as well as any practical steps on how to date in today's world.
+* *For some reason, when it comes to sex, it seems that I have a lot of self-worth wrapped up in my sex drive.* 
+* *Someone I know, I won’t say whom, told me he felt emasculated when I asked him to take my car to the gas station to get the wipers replaced.*
+* *Here’s a specific example which occurred whilst I was trying to use the disarming technique.*
+  > "I knew it all along, you really don't want to meet with me or actually have lunch with me!”
