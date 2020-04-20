@@ -9,7 +9,7 @@ At the moment, a bulk of this project is simply a listing of [Feeling Good podca
 
 I'd also like to make an index of related research and history, including the works of [Albert Ellis](https://en.wikipedia.org/wiki/Albert_Ellis), and [Aaron T Beck](https://en.wikipedia.org/wiki/Aaron_T._Beck).
 
-There are a number of directions to go from there, like working on a set of universal human fears and anxieties, cognitive distorties, negative thoughts, etc. I'd like to explore the connections between TEAM-CBT and mindfulness meditation ([Vipassana](https://dhamma.org)), along with [Marshall Rosenberg's Nonviolent Communication](https://gitlab.com/prosocial-dynamic/nvc-rosenberg).
+There are a number of directions to go from there, like working on a set of universal human fears and anxieties, cognitive distorties, negative thoughts, etc. I'd like to explore the connections between TEAM-CBT and mindfulness meditation ([Vipassana](https://dhamma.org)), along with [Marshall Rosenberg's Nonviolent Communication](https://github.com/cognitivetech/Marshall-Rosenberg-NVC).
 
 ## TOC
 
